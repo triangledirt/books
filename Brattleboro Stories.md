@@ -30,7 +30,7 @@ I had never heard of Brattleboro, Vermont, until I was living with my mom in But
 
 In 2011, I move to Brattleboro, Vermont, population 11,765 (plus one). I live there a year. This is what happens.
 
-### 2
+## 2
 The first thing I saw was a Craigslist ad for a house in Vermont.
 
 No, go back further.
