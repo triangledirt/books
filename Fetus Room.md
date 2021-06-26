@@ -766,7 +766,7 @@ And all I have—
 
 —all I have—
 
-—is an intuition strong ass Fischer's, before there was anything known as a central banking giant—global anteaters who if you can't slide this slide, have no skill at all.
+—is an intuition strong as Fischer's, before there was anything known as a central banking giant—global anteaters who if you can't slide this slide, have no skill at all.
 
 People rubbing the sticks together, sparking it, releasing their juice. People at a room party in the tenth grade, we split off in doubles and triples found closets to union in, lying on the floor with my mouth on your cock and your hand on my cunt. You pressed me so hard it hurt to pee afterward, year later knocking on my window but I had another visitor and decided to turn you away. People went drinking at the diner you threw a piece of food over my head and it landed on some geriatrics, they were trying a meal but our youthfulness got in the way we took precedence it was our world now and only time for them to die. Work constantly. Every tick is a universe—deliver it forward. My project may fail but when they excavate me (carefully, with brushes and gentle breaths) someone will find my wall, replete with dried fish who are truly the brine specimens of the age: dark, flaky blood skin, eyes dried out of their heads, fingernails intact, sharp like diamonds, a brief history of gastric input showing their first and last meals consisted of Cheetos and dog food and the occasional sour apple Jolly Rancher.
 

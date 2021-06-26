@@ -158,7 +158,7 @@ Just then the bartender returns with my steak.  It is cooked extra rare.  With t
 
 ## 2
 
-Baker and I had a history.  From the first I saw her practicing color guard with the school’s JROTC program—her face so smooth, her hair: *an angel’s*!—to the time I followed her across the gym floor during a science exhibition—projects everywhere, and none more important to me than my own—I tracked her down and we spoke and she did seem kinda dumb to me.  But I liked her anyway, and over the years we’d become fuck buddies.  From that time watching *The Great Gatsby* (Robert Redford version) sitting in the dark of the basement where her apartment was, her dog outside listening.  And Baker and I moved deliberately to a lying down position and kissed in the dark—and all we did was kiss—but the seed was sewn, and it wasn’t till a couple years since *The Great Gatsby* that we hooked up in my place on Second Street in Dayton Ohio (with the help of a bottle of Aftershock) that we finally took it all the way.
+Baker and I had a history.  From the first I saw her practicing color guard with the school’s JROTC program—her face so smooth, her hair: *an angel’s!*—to the time I followed her across the gym floor during a science exhibition—projects everywhere, and none more important to me than my own—I tracked her down and we spoke and she did seem kinda dumb to me.  But I liked her anyway, and over the years we’d become fuck buddies.  From that time watching *The Great Gatsby* (Robert Redford version) sitting in the dark of the basement where her apartment was, her dog outside listening.  And Baker and I moved deliberately to a lying down position and kissed in the dark—and all we did was kiss—but the seed was sewn, and it wasn’t till a couple years since *The Great Gatsby* that we hooked up in my place on Second Street in Dayton Ohio (with the help of a bottle of Aftershock) that we finally took it all the way.
 
 Fucking Baker had become an exalted experience.  Full of imagination and the fulfillment of imagination.  Her puss was so red and so tight..it was unimaginable.  Truly, the best sex of my life, right there.  Soap suds—the works.  Tight as a flower mate by a honeybee 🐝, the bee shaking his tail feathers to get in there.  Before we had stood in the light of a street lamp visible five floors below..and when it turned red we stopped touching each other and when it turned green we started again.
 
@@ -2904,7 +2904,7 @@ I stared into my drink and then into another one.  It was only once I stood up t
 
 That business dude was standing with his pushy belly sticking over his belt and he reminded me of everyone I had worked for before becoming a film 🎞 student and I *hated* those people—hated them for existing and for having detained me for so long and for wasting my time.
 
-I walked straight past that motherfucker and said: “HAVE FUN BEING A JACKASS, YOU IGNORANT FUCKING *TURD*!!”  It echoed through the terminal.  I wondered what his wife would think when he told her this story.
+I walked straight past that motherfucker and said: “HAVE FUN BEING A JACKASS, YOU IGNORANT FUCKING *TURD!!*”  It echoed through the terminal.  I wondered what his wife would think when he told her this story.
 
 On layover Charisma texts me: “Fuck.  Found coke.  Was in socks.  Had it with me the whole time!  I’m an idiot.”
 

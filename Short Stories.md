@@ -1,6 +1,6 @@
 # Short Stories
 
-## A Wedding in June
+## A Wedding in June (juvenilia)
 
 I had just arrived, but wasn't sure if I had walked. I sat and ate my thin, hot slice of pizza as I observed my nearby surroundings. It was the Thursday of the last week of school but the school was strangely calm, a nice change from the usual hustling and bustling around the hot building. Everything seemed normal, routine, indifferent, and there was nothing out of place.
 
@@ -160,6 +160,7 @@ Tina's mom had like one piece or something
 and Tina ate the other one
 
 ## Jessica's Pussy
+
 I had been interested in Jessica's pussy since about the fourth grade.
 
 But I never called her Jessica.

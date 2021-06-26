@@ -72,7 +72,7 @@ That guy was right.
 
 He was motherfucking right.
 
-And that's what happened with this Laura Lindsay situation. What should have been a ten-minute hike turned into a five-day survival hike.
+And that's what happened with this Laura Lindsay situation. What should have been a ten-minute walk turned into a five-day survival hike.
 
 And I wasn't carrying my foot powder.
 
@@ -3602,9 +3602,9 @@ They didn't know what they wanted.
 
 But they wanted *something.*
 
-And sometimes just *wanting something bad enough..*is enough to find it.
+And sometimes just *wanting something bad enough*..is enough to find it.
 
-Sometimes *wanting something..*makes *it* come into existence.
+Sometimes *wanting something*..makes *it* come into existence.
 
 Gettin' too eastern for you?
 

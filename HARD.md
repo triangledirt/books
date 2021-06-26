@@ -2158,7 +2158,7 @@ Penelope says: “Are you?”
 
 “Goodnight! Have fun. Play safe. Don’t get AIDS.”
 
-Chad and Penelope turn around. Penelope points at Chad’s shirt. “[[Don’t get AIDS](#).underline](https://twitter.com/Slashleen/status/29108742242?lang=en),” she says.
+Chad and Penelope turn around. Penelope points at Chad’s shirt. “Don’t get AIDS,” she says.
 
 That’s how we leave it. Lol. Chad and Penelope—that shirt isn’t even Chad’s, he must have picked it up at the club somehow—and me and Jules, wandering off in opposite directions on South Jefferson at four in the morning.
 

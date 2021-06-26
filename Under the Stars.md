@@ -4898,8 +4898,7 @@ I look at him.
 
 So I take off my apron and Bahir and the other line cook watch while I leave the kitchen. I go to the employee closet and take my tortellini pasta off the top shelf. I sit leaned up next to my bag and I look at the food. It's glorious—even though it's cold. I pick up one of the rings of tortellini with my fingers and eat it. Then I pick up another, and another, licking my fingers after each one. As I'm slurping and chewing and licking I look up and there's Ophelia, looking down on me, watching me eat. I smile at her and she just smiles back. I'm too hungry for any more politeness, so I bow my head and go back to my food.
 
-###### 26
-
+## 26
 I notice it while I'm sleeping at the Casbah. It starts with a general weakness, then a headache, then a horrible cough. My muscles ache, my joints creak when I move. At first I think I have the flu, then I notice this terrible taste. When I eat anything, it tastes like shit. There's this iodine taste to wine—so bad I can hardly drink it. Food tastes bland, and like it's rotting. I think there's something seriously wrong with me.
 
 It affects my work. I'm sluggish, everything hurts, I can hardly get through a shift. Dishes pile up at the Grill. I'm taking more and more trips to the employee closet. Ophelia finds me napping there.
@@ -5237,7 +5236,7 @@ Ashley is my longest-time friend. I've known her since Ohio University days. She
 We get reacquainted, this old friend and I, as she takes us out of the city and past the foothills and into the desert night. The lights fade outside my window and the restaurants and homes and streetlamps go away and it's just the two of us speeding along, isolated, next to miles and miles of sand.
 
 ## 27
-For a week I lie in bed at Ashley's place. Bed is my sleeping bag on the floor of Ashley's bedroom. I sleep twenty hours a day. They rest of the time I'm coughing.
+For a week I lie in bed at Ashley's place. Bed is my sleeping bag on the floor of Ashley's bedroom. I sleep twenty hours a day. The rest of the time I'm coughing.
 
 I want to go to the doctor but can't without health insurance. I try eating Rice Chex but the milk tastes rotten. I eat it anyway. The sickness seems like it's going to last forever. When I come out of my daze Ashley introduces me to her friend and apartment mate, Faith.
 

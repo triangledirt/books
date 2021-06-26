@@ -12,9 +12,9 @@ If he wanted much else, I don't know. He might not have got what he expected.
 
 My story starts in Ohio. It starts at a funeral. It starts at a funeral for a girl named Heather, who I knew from there. We went to school together. She died of a drug overdose. It was heroin.
 
-We all went together, me and some people who knew her, from our classes. It was right after graduation. She died right before graduation. So we all showed up at the church in Centerville where they were having the funeral, and we sat together in the front rows, right behind the family. The girls were crying. Even Nathan cried a little, I saw him. Ben was sitting next to me, past that it was Tosha and Mike, then Caroline, then Tiffany, then Nathan. We were all in plays together at school. Heather was the star. They said she was a triple-threat. They said she was the most likely to succeed. And it's true, she could sing, dance, and act. But she also liked to shoot heroin. As she would say she was "fond of the needle". They found her slumped over in her bedroom. Her parents found her. They made pictures available to the news, to help warn other children off from doing it. That's how much her parents didn't want this to happen to someone else's kid. This gray-looking picture of her, with a rubber strap around her arm, leaned forward over her legs. I would just imagine her dying, her heart stopping, that last moment of knowing you're alive, and then she couldn't breathe.
+We all went together, me and some people who knew her, from our classes. It was right after graduation. She died right before graduation. So we all showed up at the church in Centerville where they were having the funeral, and we sat together in the front rows, right behind the family. The girls were crying. Even Nathan cried a little, I saw him. Ben was sitting next to me, past that it was Tosha and Mike, then Caroline, then Tiffany, then Nathan. We were all in plays together at school. Heather was the star. They said she was a triple-threat. They said she was the most likely to succeed. And it's true, she could sing, dance, and act. But she also liked to shoot heroin. As she would say she was "fond of the needle." They found her slumped over in her bedroom. Her parents found her. They made pictures available to the news, to help warn other children off from doing it. That's how much her parents didn't want this to happen to someone else's kid. This gray-looking picture of her, with a rubber strap around her arm, leaned forward over her legs. I would just imagine her dying, her heart stopping, that last moment of knowing you're alive, and then she couldn't breathe.
 
-So Heather overdosed on Tuesday and we had graduation on Thursday. The funeral was Saturday. We didn't even have time to prepare a speech, some sort of tribute to her, it was just a brief announcement that said "in memory of". Not even anything in the program. We wanted to get together and have some sort of student share time to talk about her death, but with graduation it never got organized. Friday me and Caroline hung out at my apartment, looking at Heather's picture, and Saturday I picked Ben up and we went to the funeral.
+So Heather overdosed on Tuesday and we had graduation on Thursday. The funeral was Saturday. We didn't even have time to prepare a speech, some sort of tribute to her, it was just a brief announcement that said "in memory of." Not even anything in the program. We wanted to get together and have some sort of student share time to talk about her death, but with graduation it never got organized. Friday me and Caroline hung out at my apartment, looking at Heather's picture, and Saturday I picked Ben up and we went to the funeral.
 
 - - - -
 
@@ -1137,7 +1137,7 @@ Ben looks at me.
 
 "Well let's go to the store. Did you find a store?"
 
-I had found a store. I had found several. But I found one who said they specialize in Glock, on their website, so we went to that one. I had done all kinds of research on what gun I wanted, picked it out all the way to the model, online. The G26 Gen4 in 9x19. The "Baby Glock". Perfect for me. Some guy tries to stab me in the neck at Burger King, I'll kill the motherfucker. We'd need a concealed carry permit, but I'd done the research on that, too. I had no history of felonies, no history of mental illness. If I wanted to carry a gun, I could, and Ben and I both thought it was necessary, in this city. Some guy comes up and tries to rape me? Blam. Kill the motherfucker.
+I had found a store. I had found several. But I found one who said they specialize in Glock, on their website, so we went to that one. I had done all kinds of research on what gun I wanted, picked it out all the way to the model, online. The G26 Gen4 in 9x19. The "Baby Glock." Perfect for me. Some guy tries to stab me in the neck at Burger King, I'll kill the motherfucker. We'd need a concealed carry permit, but I'd done the research on that, too. I had no history of felonies, no history of mental illness. If I wanted to carry a gun, I could, and Ben and I both thought it was necessary, in this city. Some guy comes up and tries to rape me? Blam. Kill the motherfucker.
 
 - - - -
 
@@ -1803,7 +1803,7 @@ Ben lies there tense. I imagine him thinking of all sorts of protests, beginning
 
 Ben reminded me that one of the things on my list was to get a new psychiatrist. I had seen one in Ohio since I was a kid. Been in counseling my whole life. Knew I had to get one when I came here but my medication hadn't run out and I didn't like the thought of having to see someone new. But with Ben starting work, and me being home alone now certain days, it seemed like a good idea to go ahead and hook up with someone. We looked up a million on the internet. I didn't know how to choose. We were going down this massive list and we got to the Gs when there was one named Dr. Giggle. I liked the name (it made me laugh) so I called him.
 
-Dr. Giggle's office is in a motel in Hollywood. It's north on Cahuenga, just above Hollywood Boulevard, and it's the kind of place with no pool, a couple of stories of rooms, and about four cars in the parking lot. The first time I went I thought I was in the wrong place. The address was correct, but it was a motel. There's no sign that says, "Dr. Giggle, Psychiatry" or anything like that. It just says, "The Best Inn" and has pink neon lights making a border around that. I'm in my car with Gabby Gabby and I'm like looking around thinking, "Where is it?". I checked the address on my phone. It says this is the address. Well, I might as well get out.
+Dr. Giggle's office is in a motel in Hollywood. It's north on Cahuenga, just above Hollywood Boulevard, and it's the kind of place with no pool, a couple of stories of rooms, and about four cars in the parking lot. The first time I went I thought I was in the wrong place. The address was correct, but it was a motel. There's no sign that says, "Dr. Giggle, Psychiatry" or anything like that. It just says, "The Best Inn" and has pink neon lights making a border around that. I'm in my car with Gabby Gabby and I'm like looking around thinking, "Where is it?" I checked the address on my phone. It says this is the address. Well, I might as well get out.
 
 So I get out of my Subaru, take Gabby Gabby in my arms, and start looking at the room numbers. Dr. Giggle's address does say Suite ##14 on it. Maybe that's room ##14? I take Gabby Gabby up the stairs. There's a man on a lawn chair, fat belly, reclining in front of his door, which is door ##12. I have to step over his legs to get past him. He smiles.
 
@@ -3575,7 +3575,7 @@ I took my phone out of my purse and texted Tosha. But she didn't answer. It was 
 
 The call ended.
 
-I stood up. I went down all these stairs, flight after flight, wondering when I was going to get to the bottom, and every floor was the same. Boxes, fire extinguishers, doors to other theaters. I was barely able to stand, but I went anyway. Held onto the rail. Sat down a couple of times. Thought about who else I could call. Needed to talk with someone. Then I got to the bottom of the stairs. There were two wide emergency doors. It didn't say "Alarm will sound". It was just these two, super-wide, green-painted fire doors.
+I stood up. I went down all these stairs, flight after flight, wondering when I was going to get to the bottom, and every floor was the same. Boxes, fire extinguishers, doors to other theaters. I was barely able to stand, but I went anyway. Held onto the rail. Sat down a couple of times. Thought about who else I could call. Needed to talk with someone. Then I got to the bottom of the stairs. There were two wide emergency doors. It didn't say "Alarm will sound." It was just these two, super-wide, green-painted fire doors.
 
 I thought about all them upstairs. I didn't have a plan. I just knew I could not sit in that theater any more and watch that movie and pretend that I was having a good time. So I didn't go back.
 
@@ -3957,7 +3957,7 @@ I interrupted only once. I asked," Where are we going?"
 
 And they said, "Westlake." We've got to get you to Westlake. We found this crazy girl in a fountain and we took her away. She wasn't even wearing shoes! I wondered how I was getting home that night and imagined Ben having to drive all this way in my puma.
 
-Then we were there, took an exit off the highway and a few turns later, went through a black iron gate that said "Westlake Retreat". I was excited we were there. I don't believe how naive I was. I really thought I was leaving that night.
+Then we were there, took an exit off the highway and a few turns later, went through a black iron gate that said "Westlake Retreat." I was excited we were there. I don't believe how naive I was. I really thought I was leaving that night.
 
 ## 3
 They were true to their word and took the handcuffs off when we got there. William walked me in while Tracy sat in the car. We went through double doors and up to a reception desk. William and I did some paperwork, and I was saying my goodbyes to him and he was wishing me well and gave me his card and told me to call him when I got out to let him know I was ok. I told him I would call.
@@ -4532,7 +4532,7 @@ Community meeting was run by David, the loud RN who had taken my vitals when I w
 
 "Now we're going to go around our circle. We have a few questions we like to answer each morning. They're written on the board there. One. What is your name. That's the giveaway. Two What's your goal for the day. What's something you'd like to do today, something simple, that you can measure, that you'd like to accomplish today. We ask that it not be go to all the groups or see your doctor, 'cause you're expected to do those things. Alright. Moving right along. Three. A coping skill. What's something you do that helps you cope. When you're stressed, when life has got you down, what's something that helps you. Some examples are drawing, some people here like to do art. Some people their coping skill is music. That's one of mine. And finally, question number four, what's something you're thankful for. Who would like to start?"
 
-Faith started. Her goal for the day was "not to go ballistic on staff members". Her coping skill was "fighting" which David protested against and asked her for a new one, but which she couldn't come up with one. Her thankful for was "people she had met in the Westlake Retreat". She said all this with a sing-songy voice and then passed the focus to her left, back to David.
+Faith started. Her goal for the day was "not to go ballistic on staff members." Her coping skill was "fighting" which David protested against and asked her for a new one, but which she couldn't come up with one. Her thankful for was "people she had met in the Westlake Retreat." She said all this with a sing-songy voice and then passed the focus to her left, back to David.
 
 We went around in a circle like this, a misshapen one, based on the position of various chairs and couches in the room, skipping over the TV, which was on mute, playing SportsCenter, coming all the way around the room and finally getting to me.
 
@@ -4774,7 +4774,7 @@ Knocking.
 
 I sit up.
 
-It's a thin woman with pink hair. Her name tag says "Bonnie". She comes right up to me and hands me a cup of water, then a tiny cup with one pill in it.
+It's a thin woman with pink hair. Her name tag says "Bonnie." She comes right up to me and hands me a cup of water, then a tiny cup with one pill in it.
 
 "What is this?"
 
@@ -5264,7 +5264,7 @@ Dr. Hunter's pen is poised right above the paper.
 
 Dr. Hunter and I talked for about an hour the first day. When we were done she left me in my room with a promise that we would meditate together tomorrow, and that she would try to get me out of here as soon as possible.
 
-I got up and went to my door. I looked down the hall toward ALSA, the door with the plastic cage over it, where Faith had been. Then I looked at Janice's door, and inside, it, and her things were gone. New sheets were on the bed and the name tag on the door said, "Katrina".
+I got up and went to my door. I looked down the hall toward ALSA, the door with the plastic cage over it, where Faith had been. Then I looked at Janice's door, and inside, it, and her things were gone. New sheets were on the bed and the name tag on the door said, "Katrina."
 
 "Why did Janice leave?"
 
@@ -5348,7 +5348,7 @@ I notice different things about myself staying in the hospital than when I'm on 
 
 Dr. Hunter's point about Adderall not necessarily being the reason I wasn't sleeping opened me up to a whole set of investigations about myself. Casting off the assumed reasons for things, looking deeper for other reasons. I was wondering why I had allowed them to transfer me to a suicide hotline. That was why I was here. If I wasn't suicidal, would I have stopped the operator from transferring me to that number? I wasn't suicidal, but I had hit a wall of not knowing what to do, and I had felt like I needed help. Mostly I had drank too much, and if I could change anything about the last week, it would be to not get so crazy drunk that I would have been calling the operator at all.
 
-When you think about these things, you can talk yourself into and out of being crazy. I was standing barefoot in the fountain at the Arclight. Does that make me crazy? Maybe I just didn't want to get my shoes wet. Maybe it would have been crazy to leave them on. But you know that colored the cops' opinion of me. So it is important. It goes in your chart somewhere, and some doctor is looking at a description of you that either says, "found standing in a fountain" or "found standing in a fountain w/o shoes".
+When you think about these things, you can talk yourself into and out of being crazy. I was standing barefoot in the fountain at the Arclight. Does that make me crazy? Maybe I just didn't want to get my shoes wet. Maybe it would have been crazy to leave them on. But you know that colored the cops' opinion of me. So it is important. It goes in your chart somewhere, and some doctor is looking at a description of you that either says, "found standing in a fountain" or "found standing in a fountain w/o shoes."
 
 The nurses mostly let you know what they were looking for. They would talk to me about it. Tell me that they were noticing I wasn't sleeping and would I like some sleep medication. That was the first thing they noticed. John, the night nurse, did. I wasn't going to sleep. I thought it was just because I was in a new place but they informed me that this, too, was not normal. People normally sleep, they said. You're not. You're up later than most patients, you wake up earlier. You're out in the common room reading and arranging the furniture. No this is not common. Well what does it mean? Talk to your doctor. The nurses are just there to take notes and make sure you don't kill yourself. Literally. They're not there to diagnose you.
 
@@ -5438,7 +5438,7 @@ She holds out her hand to me and we air-shake.
 
 I nod.
 
-"This is my." She almost says "bitch". But she mouths it instead.
+"This is my." She almost says "bitch." But she mouths it instead.
 
 "Lacy, are you ok with this side?"
 
@@ -11009,7 +11009,7 @@ That night when Ben held me down he was careful of my left wrist, and he licked 
 
 Instead I got back into exercise. I remembered my membership to LA Fitness and started using the treadmill again. At first my wrist was a little sore when I'd run, but after a while I hardly noticed it. I got to where I was running every day, even on weekends, determined to make sure my body looked good, even if I didn't have anything to do with it. Like a job. And I wasn't auditioning yet. I was too scared. I was scared I'd mess it up just like *Devil.* Scared (irrationally) that someone from the new job would have heard what happened on *How I Met The Devil* and not want to hire me. There's no way anyone would have heard about that. Unless they worked at Warner Bros. I'm lucky I was never in the news. Some little story like that could have taken off. Then I'd really be famous. No thank you. I wasn't sure if I was going to work again. That's how scared I was. I thought it might be down to me being a loser and this being the end of my life. Like nothing could come after the horrible mistake I had made. I thought I was scarred.
 
-Caroline proved a good friend during those days. She would go along with me to the gym and not talk about too much. Not pry into me with questions. Just do her running and her yoga and be there for me in simple ways. Just talking about things back in Ohio. And talking about her acting. She hadn't had anything near *How I Met The Devil.* She was doing plays in Hollywood. When I talked to people about me getting fired I just told them I got written off the show. I didn't see the reason for dragging myself through the mud. Only Faith and of course Ben did I tell the real story to. No, Caroline and I just ran and had lunches at various LA eateries, places we had heard about from friends or been to before. She introduced me to a cool little spot called The Hungry Cat which had seafood and where we drank. I introduced her to a place that Gretchen York had shown me, in Beverly Hills, with no name except a tiny little label outside that said "DOOR".
+Caroline proved a good friend during those days. She would go along with me to the gym and not talk about too much. Not pry into me with questions. Just do her running and her yoga and be there for me in simple ways. Just talking about things back in Ohio. And talking about her acting. She hadn't had anything near *How I Met The Devil.* She was doing plays in Hollywood. When I talked to people about me getting fired I just told them I got written off the show. I didn't see the reason for dragging myself through the mud. Only Faith and of course Ben did I tell the real story to. No, Caroline and I just ran and had lunches at various LA eateries, places we had heard about from friends or been to before. She introduced me to a cool little spot called The Hungry Cat which had seafood and where we drank. I introduced her to a place that Gretchen York had shown me, in Beverly Hills, with no name except a tiny little label outside that said "DOOR."
 
 I needed a basic friend at that time. I needed to remember that I was human, via going out to lunch and running on the treadmill and having a girlfriend, a regular one, who I didn't have sex with. Faith was fine but Faith was too intense. With Caroline, I could recover from my little jaunt with crystal meth without someone as crazy as I am reminding me of all the possibilities that are out there.
 

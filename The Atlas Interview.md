@@ -24,7 +24,7 @@
 **HANNAH** What? What I can’t hear you. There’s stuff going on here.
 **HANNAH’S MOM (OS)** Your father wants to talk to you.
 **HANNAH** Hello?
-**HANNAH’S MOM *(OS)** Your father would like to talk with you.
+**HANNAH’S MOM (OS)** Your father would like to talk with you.
 **HANNAH** No, I don’t think so.
 **HANNAH’S MOM (OS)** BABY
 **HANNAH** I’m gonna have to call you back.

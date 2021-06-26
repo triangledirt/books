@@ -4,7 +4,7 @@
 
 Chapter front quotes are by EM Cioran.
 
-## 1—Write books only if you are going to say in them the things you would never dare confide to anyone.
+## 1—*Write books only if you are going to say in them the things you would never dare confide to anyone.*
 
 I have a memory. I am in the sandbox. A lizard appears. I grab the lizard. His tail detaches. The lizard runs away. I am left holding this gray lizard tail—and the lizard had been green. He tricked me. And I learned a new thing that day—that lizards can eject their tails to avoid predators. Only later did I learn that they grow back.
 
@@ -162,7 +162,7 @@ I blink.
 
 And what I see across the street makes me cum involuntarily, semen pumping along the side of my leg and seeping through my jeans.
 
-## 2—I get along quite well with someone only when he is at his lowest point and has neither the desire nor the strength to restore his habitual illusions.
+## 2—*I get along quite well with someone only when he is at his lowest point and has neither the desire nor the strength to restore his habitual illusions.*
 What it is is this. This angelic piece of pussy, 24 years old—I can spot her age on the bubble—brown hair, pulled back in a pony, white t-shirt, blue jeans, and on the t-shirt—get this—she has two blue stars right where her nips are.
 
 Carries one bag with her—black military surplus—a mid-sized duffel. Boots. Skechers. Black. Thick soles, like to sell to city kids who like to pretend they're gonna be climbing mountains. Black belt. Silver buckle. Mens'. White girl. No makeup. Fresh skin—a few marks lower side of her left cheek. Not pimples..like where pimples used to be.
@@ -1175,7 +1175,7 @@ And I came.
 
 And she nodded. And she nodded. And she nodded with her eyelids pressed closed.
 
-## 7—*I* feel *I am free but I* know *I am not.*
+## 7—*I feel I am free but I know I am not.*
 I removed the ball gag because..who wants to sleep like that?..and I heard her crying quietly throughout the night. The lights always stay on in the crate. She would have to learn to sleep exposed—no blanket, no darkness, no security whatever.
 
 She called my name but I did not go to her—dead girls must make it through the night on their own.
@@ -1910,7 +1910,7 @@ Now Anna knew all three.
 
 I worked on her like that for half an hour—with the hammer and the spindle—then let the poor girl rest.
 
-## 10—*Once we begin to* want*, we fall under the jurisdiction of the Devil.*
+## 10—*Once we begin to want, we fall under the jurisdiction of the Devil.*
 In the night Anna wailed. I heard her shit a noisy shit. She was whispering to herself—which I couldn't understand—then she was talking to herself, saying something like, "Man of war caught me in a cave and took my selves apart piece. By piece. By piece." It was very poetic. Then she was screaming at the ceiling of the crate.
 
 "*HALP ME!! HALP ME!! Since you're the only one who can* hear *me then I guess it's* you *I'm asking for help from!!* God dammit, Matthew, Mr. Temple, Mr. Simple, whatever the fuck your real name is, I'm asking for *something simple*, and that's a shot—fuck me I don't believe I'm asking for this! We don't do *crystal meth* in Lehighton—but give me a shot of the crystal so I don't have to think of *the pain!!*"
@@ -2332,7 +2332,7 @@ I look at my slave.
 
 "It wouldn't be torture for me. But. I want to know."
 
-## 12—*Saints live* in *flames; wise men, next to them.*
+## 12—*Saints live in flames; wise men, next to them.*
 On Friday I brought in the birthday hats, the birthday cake (3 tier), gave Anna her own plastic spoon and tied a cloth bib around her neck with a drawing of Bert and Ernie.
 
 I poured us both a styrofoam cup of soda (I bought the off-brand) and I handed my slave her cup and said:
@@ -3549,7 +3549,7 @@ Anna looks at me over the top of the truck and laughs.
 
 And she gets in the truck.
 
-## 17—To be *is to be cornered.*
+## 17—*To be is to be cornered.*
 I didn't explain shit to her. We got to Betsy's, got a booth, ordered breakfast, and after Anna had ordered one of everything on the menu, she let Betsy leave, placed her menu in the holder near the wall, and lightly slapped the palms of her hands on the table.
 
 "I passed your test! I passed your test!"
@@ -4658,7 +4658,7 @@ I roll back over.
 
 "Cat's still having fun playing with the lizard," I say, and I put the pillow over my head and fall asleep.
 
-## 20—*The only profitable conversations are with enthusiasts who have ceased being so*—*with the ex-naïve.. Calmed down at last, they have taken, willy-nilly, the decisive step toward knowledge*—*that impersonal version of disappointment.*
+## 20—*The only profitable conversations are with enthusiasts who have ceased being so—with the ex-naïve..Calmed down at last, they have taken, willy-nilly, the decisive step toward knowledge—that impersonal version of disappointment.*
 We wake at 5:30 to Kimmie screaming.
 
 I throw off the covers and see Anna in her underwear. Anna's eyes are open and looking at me.
@@ -4797,7 +4797,7 @@ But Anna was special.
 
 And special people deserve special plans.
 
-## 21—*To try curing someone of a "vice," of what is the deepest thing he has, is to attack his very being, and indeed this is how he himself understands it, since he will never forgive you for wanting him to destroy himself* in your way *and not his.*
+## 21—*To try curing someone of a "vice," of what is the deepest thing he has, is to attack his very being, and indeed this is how he himself understands it, since he will never forgive you for wanting him to destroy himself in your way and not his.*
 After breakfast my Anna and I went back to the crate.
 
 We spent the rest of the day in there.
