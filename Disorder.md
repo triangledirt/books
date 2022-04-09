@@ -1,5 +1,5 @@
 # Disorder
-## and the Doctrine of Ethical Treatment
+
 Disorder happens when we classify a segment of behavior as not-ideal, as not-the-goal. The disordered segment is often the minority, but doesn’t have to be. There is a field of behavior, and someone has stated that a certain kind of behavior is ideal, is the goal. Behavior that goes along with this ideal is order. Behavior that goes against it is disorder.
 
 - - - -
