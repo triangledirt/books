@@ -1,4 +1,4 @@
-#  Cops vs. Aliens!
+# Cops vs. Aliens!
 “Niggar!”
 
 “Whut?”
@@ -1102,7 +1102,7 @@ What I’m going to do now is introduce Aliens—*yes, Aliens*—into my otherwi
 
 I am frightfully obsessed with Aliens—*frightfully.* About their weird looks, long heads and pointy fingers. About their history-inverting power, the power to invert our STEM-learning individuals—to stand them on their heads—with the first *look* of those foreigners.
 
-And I’m obsessed with their religion-changing capabilities. The ability of our Christian nation to be overturned nightly by Alien marauders raping our woman—raping our men!—performing invasive experiments on us for what can only be seen as an *evil* purpose.
+And I’m obsessed with their religion-changing capabilities. The ability of our Christian nation to be overturned nightly by Alien marauders raping our women—raping our men!—performing invasive experiments on us for what can only be seen as an *evil* purpose.
 
 I believe in aliens—this is certain. Forty years ago they were just hieroglyphics on the side of a pyramid in Egypt, pored over by my ten-year-old fingers at my grandparents’ house in El Paso. It was a book of strange phenomenon, a group of books. There was a book on snakes—or strange creatures. A book on apes. A book on the pyramids. And not exactly a book on Aliens, but the Time/Life logo that was drawn on their covers had a slant to it that looked Alien-like. The whole thing was propaganda for kids who wanted to believe in Aliens.
 
