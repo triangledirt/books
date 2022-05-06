@@ -369,7 +369,7 @@ This book is about Mom holding me to care for my psychology—and me holding her
 
 I’m certain she has a picture of me she runs across.  Me as a child.  I hope that even through our non-talking period she sees that picture of me.  The picture of me with my mouth open and me showing a ball of snow within it.
 
-Maybe she thinks through my life’s arc:  Happy as a kid, troubled as a teenager, all that she thinks of my early adulthood is that I was working jobs I hated.   Not any technical details, not the company names, just that she had lunch with me every Friday morning and that one morning we saw an albino squirrel in the parking lot and it made me cry.
+Maybe she thinks through my life’s arc:  Happy as a kid, troubled as a teenager, all that she thinks of my early adulthood is that I was working jobs I hated.   Not any technical details, not the company names, just that she had breakfast with me every Friday morning and that one morning we saw an albino squirrel in the parking lot and it made me cry.
 
 The thing is, though, about this world (and what you like about it, and what you hate about it)—is that you’re gonna die anyway.
 
