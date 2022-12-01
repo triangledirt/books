@@ -231,6 +231,7 @@ Mocking me in a moment.  Of the resistance.  Of thy elementary particles.  Withi
 “Thy daughter resides in Portland, land of duck, and with every porn and necklace shot, every sideways glance, with every butterfly shot from the hip.  You have gained holiness, friend.  Holy and holy and holy and hole.  She prepares herself to panties and come.  Lying face down in her bed.  Fingers and hands between the legs.  Exploring the space in between.  Ticking.  Tickling faster.  And tickling once again.  Drop ship sensation.  Holy once again.  And I come for you, Daddy.  Come again and again.  Subservience.  The wetness puddle.  Crux for giveness in duty stuck.  Crux for giveness my soft vagina so so soft, living tissue handled in graces a tome of living water ever known to the churches we go.  Touch forgiveness in the still waters given me by my maker.  Celestial bombs.  And the creation alternating between metal hands.  Between skies denounced by a deadsome breath.  Between forth and backwards.  Elevating my breathing.  And the skiffage inherent in 31 skies.”
 
 ## 4
+
 Screaming.
 
 From the kitchen.
@@ -368,6 +369,7 @@ Her mother stops her.  She leans on Monday’s arm.  Ratchets her bloated body i
 “Monday.  Go upstairs.  It’s ok.  Don’t worry, girl.  I’ve fallen down in the kitchen before.  I’ll live.  Ok?  I’ll be alive longer than most women my age.  Get dressed.  Ok?  Get dressed and go to your ball.  You’ll have fun, alright?  Listen to your momma and go on.  Go on, now.  I’ve got to make your daddy some lemonade.”
 
 ## 5
+
 It takes courage.
 
 Courage is what it takes.
@@ -427,6 +429,7 @@ I know.  I know.
 You always take your single glass of wine to go.
 
 ## 6
+
 Did I trip upwards?  Did I trip sideways?  Was there the space for an oath between the bottoms of my feet and the steps of the stairs?  Big enough for a promise keeper’s promise to protect his daughter’s warm little diamond.  To love that hole as though it was in golf.  As though it was pool.  As though it was basketball.  Get the ball in the hole with as little movement as possible.
 
 Swinging my arms.  Jolly!  All the way up my master of the house!  Bastard of the house!  A louse!  And pricking on my daughter’s door.  My Monday!
@@ -554,6 +557,7 @@ Monday looks down and nods.
 “This is the beast.  This is what your husband will use on you.  You’ll learn to love it.  To worship it.  Come here.  Leave your dress behind.  Kneel before me.  Put your cheeks on it.  Rub your lips right here.  Feel that little liquid in your cheeks.  Your lips.  Learn to make it comfortable.  Whenever my monster needs comfort, he will come to you.  Your job is to keep your pussy pure so that.  When the time comes.  You can worship your master’s cock with the love and innocence you maintain within it.  That is the purpose of tonight’s ceremony.  Practice now with mine.”
 
 ## 7
+
 “Please.  Please.  Leave my room now.”
 
 “Why?  You got things to do?”
@@ -607,6 +611,7 @@ Pulling the ejaculate up to my tip.
 Barely able to speak.  While Monday watches me.  Sitting with her hands covering her cut.  I’m picturing those two dirty dirty lips.  Shaved.  As they should be.  Plain to see.  Plain to touch.  Everything wrapped up inside her.  No roast beef.  And I’m lapping up looks like a dog.  Her face.  Her puss.  Her puss.  Her face.  Horrified as I bring myself off.  Coming on her desk chair.  Knowing that we could be together.  Once she pledges her hole to me.  Standing.  Looking over my girl.  Knowing I could satisfy myself with her.  Snapping pictures of her looks at me.  And waddling out of the room.
 
 ## 8
+
 I go to my office.
 
 It’s not really an office.
@@ -682,6 +687,7 @@ I log in as Monday and change “bitchez” to “bitches.”  That was surely a
 Once I’m done checking Monday’s Facebook I load my browser-based spy cam setup.  I have cameras in Monday’s room and I check them daily for when she might masturbate or anything like that.
 
 ## 9
+
 “Monday.  Get in.  The motherfucking.  Car.  You hear me?  Get your white-dressed ass.  In the motherfucking car!  God damn that girl.  What is she saying?  What!”
 
 “She says she’s looking for her shoes,” my wife says.
@@ -803,6 +809,7 @@ And she says: “Don’t worry, Daddy.  I will save my virginity for you.”
 I want to correct her.  To say she has it wrong.  To tell her she isn’t saving me anything.  But I like the way she says it.  So much.  That I cannot bring myself to tell her she has it wrong.
 
 ## 10
+
 Driving clench-jawed through Colorado streets.  On the way to the purity ball.  Passing through neighborhoods containing drug dealers containing drugs dealing to customers in our neighborhood customers containing the products of drugs, byproducts of diet pills and toilet cleaner.  The other two of dangerous substances my Monday must avoid.
 
 Thinking of a story my mother told me about her college professor who spoke outside.  He enforced a strict rule that there was to be no Coke brought in coolers.  He said nothing else about it.  And on day three of that class, drinking her Coke out of a thermos, my mother realized that probably the reason he had said “no Cokes” was to get people not to carry alcohol.  Get them focused on sneaking in Cokes and get them out of focusing on alcohol.  She never was sure but it seemed like a cool deal.
@@ -890,6 +897,7 @@ We had just arrived at the dance hall.  I put the Rover in park and looked at my
 “Tell me, girl.  Tell me no girl has been between your legs.”
 
 ## 11
+
 The parking lot was one-third full of vehicles.  I waited for Monday to answer.  But she did not.  She would not.  In fact she waited silently facing forward waiting for me to open the door.
 
 I got out my side of the Rover and went to her.
@@ -951,6 +959,7 @@ Doubling me, tripling me.  Many times-ing my experience in this small world.  Ma
 “If you say so.”  That’s all I can come up with.  “I mean Monday.  If that’s what you think it’s about then I guess that’s what it’s about!  I guess.  I mean if you don’t think you can have a sexual relationship with a cat then I guess.  That half my job.  Is done!”
 
 ## 12
+
 I open the door for my daughter.
 
 Usher her in.
@@ -1006,6 +1015,7 @@ He says his name but I forget instantly.  I tell him mine.  Futile!  And he and 
 I look at him.  His tux is tattered at the seams.  His daughter’s dress looks somehow cheap.  He probably isn’t from this neighborhood.  I wonder what kind of lower bar is set economically for these things.  These events.  These farcical dances of supposedly virgin girls and their pervert fathers.  I look at his daughter again and am surprised to see this other father is looking at mine!  But then, seeing that he’s not looking away, I steal a long look at Emmy and her movements, her demeanor, her character, and her body invite me to look more.  I’m in a fantasy of me and Emmy meeting up in the bathroom and her sitting on top of the radiator.  Legs spread.  Pulling me with her arms inward and me unavoidably getting hard pulling off her panties throwing them on the floor and fucking.  Fucking.  Fucking her until she screams out.  In pleasure or in pain.  Either one is good for me and afterward she would leave me in the bathroom wondering if that had been her first time.  Remembering her pussy, tight as a fist.  Soft as the space between a baby’s legs.  Emmy letting the bathroom door close behind her and I’m standing, leaning on the sink, looking in the mirror, back at the purity ball table making the quickest possible glance at Emmy’s dad then looking in shame at my place settings.  And all the while wondering where his thoughts had gone with respect to my daughter.
 
 ## 13
+
 Kitties and animals.
 
 Tiny children, babies.
@@ -1083,6 +1093,7 @@ Read them at your peril.
 Once you let a man fuck you.  You can never go back.  That is the point of no return of your innate purity.  Your holy goal.  Your righteous muffin.  Your warm little diamond.  Protect them with your life—and I will help you—protect your body, mind, and soul from the evil that is in this world.
 
 ## 14
+
 Protect yourself.
 
 Protect your delicacy, darling.  Protect your delicacy, dear.
@@ -1152,6 +1163,7 @@ And Monday’s eyes read clear.  They say:
 “My daddy really loves me!”
 
 ## 15
+
 Step ball change.  Flap ball change.
 
 All the pretty movements from a youth of Monday’s dance classes.
@@ -1213,6 +1225,7 @@ The two of us are the only two standing still amidst all the other dancing coupl
 And at that, Monday dropped my arms and let my hands go limp at my sides and she ran from the dance floor, crying.
 
 ## 16
+
 I admit I stood there, dumb.
 
 For a second, waiting for everything to work out.
@@ -1327,6 +1340,7 @@ I shake my head at her.
 “No,” I say.  “It’s not.”
 
 ## 17
+
 “What it’s about.  Is purity.  It’s purity.  You know.  Like a floor that’s never been stepped on.  Or dishes that have never been eaten off of.  Your body is a temple, Monday.  A holy temple created by our God as the home and birthplace of your future family.  Which is an extension of your mother’s purity.  When I first touched her.  You don’t want to come home and wipe your feet at the door and then.  When you step inside the house.  To have the house be dirty.  Do you?”
 
 Monday sits looking at me through her camera lens.  Everything she’s recording being bounced around the world.  Repeated on screens of everyone watching her channel at this time.  I imagine myself being watched this way by girls I do not know.  Will never know.  But I have this chance to reach them all with my message.  Either that or be laughed off the world stage.
@@ -1366,6 +1380,7 @@ Monday interrupts.  She says, “Dad.  What does this have to do with—”
 “I’ll tell you!  It has to do with your safety and your feeling of safety.  Don’t you want to be a little kid for as long as you can?  Don’t you want that for yourself?  Once you start fucking.  That’s growing up right there.  That plus getting a job, paying your own rent.  That’s being an adult!  What I’m offering you.  What every dad in this building is offering you.  Is an extension of life.  Life and life itself.  Why wouldn’t you want that?  You can’t get childhood back.  Once it’s gone, it’s gone!  Just a pale thread of memory and all the while you, as an adult, are growing far, far away from it.  And it being left far, far behind.  The purity pledge we make tonight is your way—and my way of helping you—to hold onto your childhood as long as possible.”
 
 ## 18
+
 “Isn’t it your own come that bothers you?” asks Monday.
 
 “How is that?” I ask the phone.
@@ -1491,6 +1506,7 @@ I hold out my hand to her.
 “Is that enough for you?  Come on.  Let’s go back to the ceremony.”
 
 ## 19
+
 “A look of total sexual devastation,” Monday whispers to herself as we walk down the hallway.
 
 “Monday.  Stop that.”
@@ -1562,6 +1578,7 @@ And with that I swatted Monday’s ass as though she had done something wrong.
 Even though I couldn’t think of a single thing she had.
 
 ## 20
+
 We walked to the edge of the room like Vegas newlyweds.  My arm around her shoulders.  Her arm around my waist.  Both laughing at our imagination of a secret future.  Leaving our jobs.  Our school.  Never returning home.  Having already tasted the marriage bed, we were in no hurry to go anywhere.  Except the car.  Except the road.  Except to return to Colorado Springs.  To drink.  Collapse on the couch.  To fall soundly asleep in one another’s arms.
 
 We made it to the table like drunks.  Which drinks I was sure were not on the purity menu.  But somewhere in the back of the lazy Susan I was sure my wife had hidden something of this type.  Of the alcoholic type.  Of the vodka type.  And of the Absolut type of vodka, of alcohol, of lovely lovely yummy yum yum.
@@ -1625,6 +1642,7 @@ Emmy and her dad are staring at me too.
 “What?  Alright!  I’m coming.”
 
 ## 21
+
 Parking lot rush.
 
 Goodbyes in fugue.
@@ -1726,6 +1744,7 @@ Eyes welling up.
 “Who are the Walkers?  The Walkers are the people who started this purity shit in the first place!  They decided to give their daughters purity rings and make them sign a pledge that says they won’t fuck nobody till they marry.  Now we are gonna sit here until you tell me what the Walkers’ themes are.”
 
 ## 22
+
 “Uh.  What?”
 
 Cars fly past us on the highway.
@@ -1811,6 +1830,7 @@ I’m rubbing her clitoral area.  Pretending it isn’t happening.  Never quite 
 “Integrity?” she asks.  “Clarity?  That moment when you wake up.  Before you open your eyes.  When you can’t even remember who you are.  When all your systems come back online?  Then?  Is that pure?  What about when you’re dreaming.  When you’re fast asleep?  When you’re dreaming you don’t even know who you are.  Isn’t that a pure moment?  When you’re unconscious.  When you don’t even have a body.  When someone else could touch you?  And you would never know.  Their touch might affect your dreams.  But wouldn’t you never know?  Unless you woke up.  Right then.  Wouldn’t you never ever.  Never even.  Never even know that someone’s hand was on you?  That’s the purest theme I can think of, Daddy.  Oh Daddy!  Daddy, make me come!”
 
 ## 23
+
 That wasn’t exactly the way of it but that’s how I like to remember.  Monday wasn’t coming to my touch but she did feel good—that was clear from the essence of her face.  The expression was like if you were trying on a shoe that was too tight for your foot but putting it on scratched an itch on your heel.
 
 “You feel that?” I ask.
@@ -1938,6 +1958,7 @@ Monday looks at me.
 “It’s your hymen, Monday.  The precious covering of your crowning jewel.  It may not break.  It may not pop.  But it covers the entrance to your bloody castle.  And tonight I’d like to dispel a few myths about it.”
 
 ## 24
+
 “Hymen hymen broken diamond instant karma pot of coffee burning blackness blackness darkness Africa Africa n-word supreme the double decker triple decker beef from Wendy’s Kaffir girl serving chili to me simply save the toppings loving lovely little stamp caused on you by God in the moment moment of your making finger finger up your lovely little nostrils searching for the golden ticket but there is none.  Our entire world has been fixed so that you can get nowhere by picking nowhere by digging your puncture wounds ending up in outpatient with no insight no outlook nothing going for you ‘cept a medical jacket 9mm thick 45in wide with a thickness dependent on your skull.  When you tell me Dunkin’ Donuts changed its name I say not the one you carry with you in your mind the doughnut-chaliced nut hugger of a Penguin breed.  When I stick it, first I have to lick it.  To get around that sticky dough.  To get through it on the first try.  To dry your hair.  From behind.  Like Jason Bourne with the sheizer girl in both hands born feelings of intimacy and I slide into your doughnut.  First try.  First light and final darkness.  Sludge reanimation in a Play-Doh toy.  And all this is the traffic of our stage.  Light it up!  LIGHT IT THE FUCK UP MONDAY/TUESDAY WILL YOU NOW LIGHT IT THE FUCK UP!”
 
 Monday is typing furiously on her device.
@@ -1973,6 +1994,7 @@ Run it by my nose for a smell.  It is salty.  Stinky.  Just like I’d expect my
 And I say, “I just did.”
 
 ## 25
+
 “Could we have something less abstract?”
 
 “Less abstract?  I’ll try.  Your hymen is a doughnut.”
@@ -2060,6 +2082,7 @@ I watch her face.
 But this time the girl did not look away.  She met my gaze and didn’t cry and her look was so severe and also so soft and so allowing—questioning me, and what I was doing.  Was I allowed to do this to her?  Was what I was doing, right?  She really was too inexperienced to know.
 
 ## 26
+
 We drove home in quietus.  Tuesday being the religious serf of the house.  Me being its spiritual master.
 
 There was doubt.  Hanging.  In the air once Tuesday and I entered our mother/god having been perched in the living room herself only watching Hallmark movies.  The cleanser of the cleansed, no doubt written by people with serious life issues.  A drug addiction.  Maybe a spending problem that led them to eat one fancy meal outside the home.  Then be dead broke for the rest of the month.  Eating ramen noodles three times a day.  Eating the fish food once she ran out of ramen.  And of course I saw my wife in this capacity.  The way she sat installed upon the couch as she was, to me she was a screenwriter of Hallmark.  The only job I saw as suitable for her.  A compromised writer of theater truncated from every crime.  Therefore truncated of every human emotion.  Especially the basest ones:  Jealousy.  Lust.
@@ -2139,6 +2162,7 @@ My wife whose name is Sunday I decided right then to call her Monday which was o
  “It means that this is my house.  And in my house.  I make the rules.”
 
 ## 27
+
 The high priest and spiritual master I am.
 
  Of this house.  Of any other that needs me.
@@ -2184,6 +2208,7 @@ Picture of you wiping your butt in the upstairs bathroom.  Shit visible—just a
 Picture of you and your brother.  Hiding under the covers.  Just your heads showing and the tips of your fingers pulling the blanket tight.  I imagine myself there.  Your brother gone.  Me sharing the covers with you instead.  Me being your brother.  Crawling over you.  Covering you.  Covering your purity with my heart, soul, and intentions.  And once I’m on top of you.  Under there.  Every brother/sister fantasy that was ever imagined, taking place.
 
 ## 28
+
 This vision—I’m not sure where I got it—of me and my sister in early life.
 
 My bedroom.  She is underneath the sheets.  A blanket.  Covers her.
@@ -2243,6 +2268,7 @@ Everything in pain.
 Everything as it was meant to be.
 
 ## 29
+
 Closed-eye fucking.
 
 I slammed my body into—whoever—causing babies to come out in queue.  The first one in is the first one out.  Specialist data structures forged in logic’s dark.  Structures implemented as a side effect of love, squishiness, and a complex evolution surrounding us all.  Logic only built on top of every one of us.  On top of every bacteria trap in the ecosphere.
@@ -2322,6 +2348,7 @@ Mr Friend came off like a slipper.
 And just when I thought I’d hear her boyfriend’s name, my Tuesday surprised me, saying “Emmy!” as Tuesday shot her load.
 
 ## 30
+
 I slammed the closet door.
 
 My office open for all to see.
