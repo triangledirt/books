@@ -1091,6 +1091,8 @@ That was three years ago.
 
 And I see myself as hero, typing in my palisades of light, wrapped in streaks of it from behind the counters.  Going this, to my childhood heaven, which always has another day for me to live in, where eternity suits me and it was just a dirty trick by a family of dirty tricksters who may suggest my suspended animation, who got so used to that as a way to play with me (and got so used to it *working* that I didn’t even keep my enemy at bay).
 
+*TODO—fix the follownig paragraph to make sense !!*
+
 It had me so hard and so tight I can even make Rebecca the invitation to join me for a night in my jumbling clown day life, Rebecca my spirit guide on this second half of my life, jumbling and fumbling through, forgotten through my world of “work ”—maybe now that they got rid of that phrase, I will have more room to store “play” in my body of words.
 
 And Kid Cudi will take us out (in his minister voice, looking like the coolest cat in the universe) just dancing under a skylight of the universe:
