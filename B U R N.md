@@ -180,7 +180,7 @@ And all I know is that I’m carrying the coin.
 
 You might have noticed that in my books I write with voice.  A male narrator, a female narrator.  Twisted thoughts motherfuckers.  This book also has its voice.  And it’s the closest I’ve ever written to myself.  I felt after all this time you deserved it.  I guess *Clarity;)* has this voice too.
 
-That night after the almost forest fire, after getting kicked out of the sitting room for sitting in it, I grabbed a book on animals and geography from my grandparent’s shelf and went to my bedroom.  My sister Joanne was there.  She asked me what I was reading and I showed her the cover.  Joanne gave me a big nod and held up her own book.  *Nancy Drew \\#\#100–A Secret in Time.*  We both made faces of defeat.
+That night after the almost forest fire, after getting kicked out of the sitting room for sitting in it, I grabbed a book on animals and geography from my grandparent’s shelf and went to my bedroom.  My sister Joanne was there.  She asked me what I was reading and I showed her the cover.  Joanne gave me a big nod and held up her own book.  *Nancy Drew #100–A Secret in Time.*  We both made faces of defeat.
 
 I’m not sure when I fell asleep that night but it was after reading about the Zulu tribe and when I was sleeping I dreamed a Zulu tribesman came to me crossing South Africa and we met in a coffee shop before Starbucks™ existed and I was crying to him over my potential forest fire and he looked me up in some kind of ancient Rolodex™ and told me the water brothers, star people, had warned him about me and to look over my shoulder because the fire was real, and it was burning, and it was coming after me.
 
