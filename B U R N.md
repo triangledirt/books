@@ -1255,7 +1255,7 @@ If I haven’t already, I’ll be speaking here with the intention of trying to 
 
 And I saw in his eyes both anger and fear—and I knew deep within me that those were words I liked my dad to feel.  He was always popping off at the mouth telling me my predictions were wrong, making me clean the shit off my shitty shorts *with my hands* and he has the luxury of either really not remembering or conveniently having forgotten this series of events.
 
-But I don’t mind.  I got him a few times and they weren’t intended to kill but once he had built up an improper number of *dings!* I let him have it:  While we’re drifting through a circle in the Derfrey Doors parking lot a little *zing!* from the e-brake and what was at first a Disney™-glorious swing around the lot with our hair flying and each of us dreaming of where this life would take us.
+But I don’t mind.  I got him a few times and they weren’t intended to kill but once he had built up an improper number of *dings!* I let him have it:  While we’re drifting through a circle in the Derfrey Doors parking lot a little *zing!* from the e-brake and what was at first a Disney™-glorious swing around the lot with our hair flying and each of us dreaming of where this life would take us—became a neck-jolting, head-jarring *stop*.
 
 > A fish does not swim, it is swum.  A bird does not fly, it is flown—Viktor Schauberger™  
 
