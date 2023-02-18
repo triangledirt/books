@@ -1095,6 +1095,8 @@ And I see myself as hero, typing in my palisades of light, wrapped in streaks of
 
 It had me so hard and so tight I can even make Rebecca the invitation to join me for a night in my jumbling clown day life, Rebecca my spirit guide on this second half of my life, jumbling and fumbling through, forgotten through my world of “work ”—maybe now that they got rid of that phrase, I will have more room to store “play” in my body of words.
 
+*TODO—i mention cudi twice—rethink about this*
+
 And Kid Cudi will take us out (in his minister voice, looking like the coolest cat in the universe) just dancing under a skylight of the universe:
 
 > And the story goes..a young man will come and save the universe from the forces of evil.  
