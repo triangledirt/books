@@ -6252,7 +6252,7 @@ Optimistic Solutions will never provide health insurance, the entire time I work
 
 None of that I could have predicted. But I could have read the signs of John and Andy from the very beginning, and listened to my intuitive reaction to that first tech meeting. In retrospect, the best thing for me to do would have been to quit that job on the first day.
 
-###### 31
+## 31
 
 But I don't quit. I don't want to be homeless again and I want to please my dad by working a regular job and paying him back the money I owe him from film school. I would work any job, no matter how insane—and I will work this one, for two years.
 
