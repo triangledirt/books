@@ -3117,17 +3117,17 @@ I'm thinking of making a fake blog where I pretend to be working on an Alaskan f
 
 *I write plays that no one likes and make abstract logical shit that no one cares about.*
 
-*[some notes trying to solve an impossible factoring problem](#)*
+*some notes trying to solve an impossible factoring problem*
 
-*[many pages of diagrams](#)*
+*many pages of diagrams*
 
-*[ponderings on the awesome implications of solving the factoring problem, comparing it to the invention of the atomic bomb, and pledging, in writing, to give my solution to the United States government because I believe they are monitoring my notebooks and will receive my message](#)*
+*ponderings on the awesome implications of solving the factoring problem, comparing it to the invention of the atomic bomb, and pledging, in writing, to give my solution to the United States government because I believe they are monitoring my notebooks and will receive my message*
 
-*[declarations never to sleep with my ex-girlfriend, who I've been calling recently](#)*
+*declarations never to sleep with my ex-girlfriend, who I've been calling recently*
 
-*[an admission that I'm too chemically delicate to fuck with alcohol or even caffeine](#)*
+*an admission that I'm too chemically delicate to fuck with alcohol or even caffeine*
 
-*[record of a conversation with Paula, owner of the Casbah, where she tells me to chill the fuck out about work stuff—I'm a dishwasher for god's sake! and I'm still taking that shit too seriously](#)*
+*record of a conversation with Paula, owner of the Casbah, where she tells me to chill the fuck out about work stuff—I'm a dishwasher for god's sake! and I'm still taking that shit too seriously*
 
 Then this note:
 
@@ -3136,6 +3136,7 @@ Then this note:
 I close my notebook and look up at the sky. I've had enough reflection for the day.
 
 ## 15
+
 I stay at the hostel for a week. Then I'm back outside.
 
 I wake up in the wash. In Tucson, a wash is a sunken area used for drainage of flash floods. It's rocks and plants and big pipes that run under the road. You're not supposed to go in them which is why they make excellent places to stay when you're homeless.
