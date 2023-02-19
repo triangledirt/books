@@ -3121,13 +3121,13 @@ I'm thinking of making a fake blog where I pretend to be working on an Alaskan f
 
 *[many pages of diagrams]*
 
-*ponderings on the awesome implications of solving the factoring problem, comparing it to the invention of the atomic bomb, and pledging, in writing, to give my solution to the United States government because I believe they are monitoring my notebooks and will receive my message*
+*[ponderings on the awesome implications of solving the factoring problem, comparing it to the invention of the atomic bomb, and pledging, in writing, to give my solution to the United States government because I believe they are monitoring my notebooks and will receive my message]*
 
-*declarations never to sleep with my ex-girlfriend, who I've been calling recently*
+*[declarations never to sleep with my ex-girlfriend, who I've been calling recently]*
 
-*an admission that I'm too chemically delicate to fuck with alcohol or even caffeine*
+*[an admission that I'm too chemically delicate to fuck with alcohol or even caffeine]*
 
-*record of a conversation with Paula, owner of the Casbah, where she tells me to chill the fuck out about work stuff—I'm a dishwasher for god's sake! and I'm still taking that shit too seriously*
+*[record of a conversation with Paula, owner of the Casbah, where she tells me to chill the fuck out about work stuff—I'm a dishwasher for god's sake! and I'm still taking that shit too seriously]*
 
 Then this note:
 
