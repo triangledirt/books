@@ -3117,9 +3117,9 @@ I'm thinking of making a fake blog where I pretend to be working on an Alaskan f
 
 *I write plays that no one likes and make abstract logical shit that no one cares about.*
 
-*some notes trying to solve an impossible factoring problem*
+*[some notes trying to solve an impossible factoring problem]*
 
-*many pages of diagrams*
+*[many pages of diagrams]*
 
 *ponderings on the awesome implications of solving the factoring problem, comparing it to the invention of the atomic bomb, and pledging, in writing, to give my solution to the United States government because I believe they are monitoring my notebooks and will receive my message*
 
