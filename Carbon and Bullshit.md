@@ -1,8 +1,11 @@
 # Carbon and Bullshit
 
 **CARBON** In one second a bullet from a gun travels three thousand feet.
+
 **BULLSHIT** In one second a particle of light travels one hundred and eighty-six thousand miles.
+
 **CARBON** According to the Big Bang Theory our universe expanded from something smaller than a piece of dust to approximately its present size in a tiny fraction of a second.
+
 **BULLSHIT** That first second is always the longest one.
 **CARBON** I look down at my watch, and for the first three or four seconds, nothing changes. The seconds stay the same. Then they finally move, one, two, and after that first one they’re going the right speed. But the first one, which was actually probably shorter since you looked down somewhere in the middle of it, takes forever. It’s like your watch hasn’t realized you’re looking at it and it takes it a while to start doing its job again. Julian says that by looking at a clock you actually stop time. Time. Noun. System of distinguishing events. A dimension enabling two identical events occurring in the same point in space to be distinguished, measured by the interval between the events.
 **BULLSHIT** You keep looking at your watch. are you—
