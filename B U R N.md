@@ -1091,11 +1091,7 @@ That was three years ago.
 
 And I see myself as hero, typing in my palisades of light, wrapped in streaks of it from behind the counters.  Going this, to my childhood heaven, which always has another day for me to live in, where eternity suits me and it was just a dirty trick by a family of dirty tricksters who may suggest my suspended animation, who got so used to that as a way to play with me (and got so used to it *working* that I didn’t even keep my enemy at bay).
 
-*TODO—fix the follownig paragraph to make sense !!*
-
 It had me so hard and so tight I can even make Rebecca the invitation to join me for a night in my jumbling clown day life, Rebecca my spirit guide on this second half of my life, jumbling and fumbling through, forgotten through my world of “work ”—maybe now that they got rid of that phrase, I will have more room to store “play” in my body of words.
-
-*TODO—i mention cudi twice—rethink about this*
 
 And Kid Cudi will take us out (in his minister voice, looking like the coolest cat in the universe) just dancing under a skylight of the universe:
 
@@ -1163,7 +1159,8 @@ She kept an eye on us when we went to that fecund water park when everyone was a
 
 It was really the say of the driver, and in a later city Joanne had learned how to modulate this say by bringing her birthday presents and a card to which *she stopped the bus* to thank us, to have a little cry, and what was the point if we didn’t do this?  If we failed to fill out a comment card for our mail carrier but didn’t stop there:  We really thought about that shit, writing a page plus a half a page which we stapled to the official part of the form and—let me t e l l you—I don’t know what this mail carrier thought of what we wrote (a treatise by those whose gulps are too big for this world!) but it gave *us* the thrill of a day.
 
-And it was *the right thing to do,* to fill out that questionnaire, to never exaggerate but to speak as strongly as our speech could possibly be *pushed* without ever presenting a lie.
+And it was *the right thing to do,* to fill out that 
+questionnaire, to never exaggerate but to speak as strongly as our speech could possibly be *pushed* without ever presenting a lie.
 
 To write *without presenting a lie*—but to speak strongly and write boldly—that was the growing up guidance that Joanne and I grew up with.  Leona didn’t follow this guide.  Now my mom went down there to Texas™, not far from where I was born, to live near Leona and her husband and her three kids.  Dad is off somewhere (I don’t know where).  Mom has abandoned her earlier ideals, of being here for us older kids—she used to leave me a birthday message but no longer does that—I guess ‘cause I stopped picking up the phone when she called.
 
