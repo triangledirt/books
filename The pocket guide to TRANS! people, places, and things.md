@@ -160,7 +160,7 @@ If drag queens get to use TRANS! phobic slurs, does that mean other male-identif
 
 ## 41
 
-\\#PaperSucks (@paper) When do I get my language police badge? **I think next century.** Lol—sucks. And for the record: No, I do not have anything to do with the Mrs. Doubtfire sequel—nor will I. **Why—the man-in-dress thing?** Of course! **But he’s not playing a TRANS! person—he’s just a man in a dress—no connection to TRANS! people. He’s doing whatever he has to do to be close to his kids.** Still, they could have found someone more TRANS! to play him/her/whatever. **!@#@#$—I don’t get it.** I just hate when cis men take the right to wear dresses—I do—it’s innate. **But (cis) cross-dressing has a long history.** Longer than TRANS! people? **I don’t know but you’re demanding a lock on cross-dressing for TRANS! people and there are more reasons than that to wear a dress. If no one except TRANS! people can wear dresses (or suits)—what’s the fun in that?** Wearing a dress means more to me than any of your non-TRANS! examples—for those people it’s to make money or trick their kids—for me it’s my identity—core core core.
+#PaperSucks (@paper) When do I get my language police badge? **I think next century.** Lol—sucks. And for the record: No, I do not have anything to do with the Mrs. Doubtfire sequel—nor will I. **Why—the man-in-dress thing?** Of course! **But he’s not playing a TRANS! person—he’s just a man in a dress—no connection to TRANS! people. He’s doing whatever he has to do to be close to his kids.** Still, they could have found someone more TRANS! to play him/her/whatever. **!@#@#$—I don’t get it.** I just hate when cis men take the right to wear dresses—I do—it’s innate. **But (cis) cross-dressing has a long history.** Longer than TRANS! people? **I don’t know but you’re demanding a lock on cross-dressing for TRANS! people and there are more reasons than that to wear a dress. If no one except TRANS! people can wear dresses (or suits)—what’s the fun in that?** Wearing a dress means more to me than any of your non-TRANS! examples—for those people it’s to make money or trick their kids—for me it’s my identity—core core core.
 
 ## 42
 
@@ -172,7 +172,7 @@ If drag queens get to use TRANS! phobic slurs, does that mean other male-identif
 
 ## 44
 
-It’s been interesting to watch as large swaths of the LGBT internet have either labeled me a villain or a hero—in reality, I’m neither. I do a lot of what I do for the LGBT kids—for free—I don’t expect payment or recognition. Isn’t it sad that often, I—the internet star—am the only person in their lives telling them nice things? We should fix this. I ain’t ashamed of my body but if someone demanded nudes of me I’d send them a pic of a fucking lamprey eel *\\#NationalSendYourManNudesDay Every day is #NationalSendYourManNudesDay around here. @papertrash spends the entire day railing against send your man nudes day on Twitter*—*she just likes to be set against something*—*beyond a reasonable statement of critique, she appears to get off on complaining and opposing what she thinks is unjust (even as it may be!)*—*!!*
+It’s been interesting to watch as large swaths of the LGBT internet have either labeled me a villain or a hero—in reality, I’m neither. I do a lot of what I do for the LGBT kids—for free—I don’t expect payment or recognition. Isn’t it sad that often, I—the internet star—am the only person in their lives telling them nice things? We should fix this. I ain’t ashamed of my body but if someone demanded nudes of me I’d send them a pic of a fucking lamprey eel—#NationalSendYourManNudesDay? Every day is #NationalSendYourManNudesDay around here. @papertrash spends the entire day railing against send your man nudes day on Twitter*—*she just likes to be set against something*—*beyond a reasonable statement of critique, she appears to get off on complaining and opposing what she thinks is unjust (even as it may be!)*—*!!*
 
 ## 45
 
@@ -204,7 +204,7 @@ Can we have a conversation about how threatening women is disgusting and (not ar
 
 ## 52
 
-\#hypocrisy RT XXXXXXXX These words shouldn’t be used as slang XXXXXXXX **Agree that this is hypocrisy based on the reports from other TRANS! people I follow. Agree that these words should be used carefully—but disagree with the absolute scrubbing of language. Sometimes the point is to be offensive (especially in art)—and among known and trusted friends, different rules sometimes apply (in certain circumstances I can refer to XXXXXXXX as “bitch” and it’s sexy or endearing)**
+#hypocrisy RT XXXXXXXX These words shouldn’t be used as slang XXXXXXXX **Agree that this is hypocrisy based on the reports from other TRANS! people I follow. Agree that these words should be used carefully—but disagree with the absolute scrubbing of language. Sometimes the point is to be offensive (especially in art)—and among known and trusted friends, different rules sometimes apply (in certain circumstances I can refer to XXXXXXXX as “bitch” and it’s sexy or endearing)**
 
 ## 53
 
@@ -335,7 +335,7 @@ Dear media: when covering a story involving TRANS! gender people, ask: “Is the
 
 ## 85
 
-\\\#DearCisPeople it’s not my problem that you think I’m hot and that scares you. #DearCisPeople liking penises doesn’t make you gay—it just means you like penises. #DearCisPeople just because I have a dick doesn’t mean I’m trying to top you. #DearCisPeople don’t expect cookies for telling me you think I’m sexy or you “see me as a girl.” **It’s nice when people tell you they think you’re sexy, though—isn’t it? I get that if it’s just for points, it’s bogus—but it’s generally not a good policy to turn down compliments [from your friends](#)(#)** #DearCisPeople you are going to fuck up sometimes—Be open to criticism. #DearCisPeople forget anything you think you learned about TRANS! people from media or pornography. #DearCisPeople I’m no more or less of a woman for my genitals. #DearCisPeople yes, straight men are attracted to me—TRANS! women are women. **I agree—and I am attracted to some TRANS! women—but then the definition of woman is really quite multifaceted—isn’t it? And some of those facets include breasts and a vagina. Maybe part of what is hard here is the re-definition of “woman”—of “man”—the terms are overloaded now such that nobody knows what they mean!** #DearCisPeople don’t ask me if I’ve gotten “the surgery yet.” **The (obvious) implication/trend is that a lot of TRANS! people aren’t getting “the surgery”—You can be TRANS! without the surgery. But I guess that isn’t in line with an older view of TRANS! people—that surgery was implied—that it was a necessary part of “the package.”** *People be obsessed with that!!*—I know right?? All the time. Why do they think they should get to know? **(In some cases, maybe they’re just making conversation—just asking about something that’s important to you—they might not be obsessed at all)**
+#DearCisPeople it’s not my problem that you think I’m hot and that scares you. #DearCisPeople liking penises doesn’t make you gay—it just means you like penises. #DearCisPeople just because I have a dick doesn’t mean I’m trying to top you. #DearCisPeople don’t expect cookies for telling me you think I’m sexy or you “see me as a girl.” **It’s nice when people tell you they think you’re sexy, though—isn’t it? I get that if it’s just for points, it’s bogus—but it’s generally not a good policy to turn down compliments [from your friends](#)(#)** #DearCisPeople you are going to fuck up sometimes—Be open to criticism. #DearCisPeople forget anything you think you learned about TRANS! people from media or pornography. #DearCisPeople I’m no more or less of a woman for my genitals. #DearCisPeople yes, straight men are attracted to me—TRANS! women are women. **I agree—and I am attracted to some TRANS! women—but then the definition of woman is really quite multifaceted—isn’t it? And some of those facets include breasts and a vagina. Maybe part of what is hard here is the re-definition of “woman”—of “man”—the terms are overloaded now such that nobody knows what they mean!** #DearCisPeople don’t ask me if I’ve gotten “the surgery yet.” **The (obvious) implication/trend is that a lot of TRANS! people aren’t getting “the surgery”—You can be TRANS! without the surgery. But I guess that isn’t in line with an older view of TRANS! people—that surgery was implied—that it was a necessary part of “the package.”** *People be obsessed with that!!*—I know right?? All the time. Why do they think they should get to know? **(In some cases, maybe they’re just making conversation—just asking about something that’s important to you—they might not be obsessed at all)**
 
 ## 86
 
@@ -399,7 +399,7 @@ Fitting room time! XXXXXXXX—**Maybe this is horrible of me to say (especially 
 
 ## 101
 
-\#NoUnexpectedPenises is the most offensive hashtag ever—conflating TRANS! women’s existence with sexual assault. Go fuck yourselves.
+#NoUnexpectedPenises is the most offensive hashtag ever—conflating TRANS! women’s existence with sexual assault. Go fuck yourselves.
 
 ## 102
 
@@ -435,11 +435,11 @@ It’s so fucking ridiculous that “male woman” actually became a thing peopl
 
 ## 110
 
-*My irl life completely parallels my online one: How am I supposed to ignore a rape threat just because it came from a computer?* There was a big brouhaha a while back when an anti-feminist woman asked me to submit my rape threats to her for evaluation—they accused me of faking threats or playing the victim because I didn’t think rape threats should be evaluated for severity—All rape threats are serious (all are wrong) and all should be followed with legal punishment (in my opinion) *Wait, that’s not your job (to screen rapists to see which are “serious?”)*—*\\#WhoKnew*
+*My irl life completely parallels my online one: How am I supposed to ignore a rape threat just because it came from a computer?* There was a big brouhaha a while back when an anti-feminist woman asked me to submit my rape threats to her for evaluation—they accused me of faking threats or playing the victim because I didn’t think rape threats should be evaluated for severity—All rape threats are serious (all are wrong) and all should be followed with legal punishment (in my opinion) *Wait, that’s not your job (to screen rapists to see which are “serious?”)*—*#WhoKnew*
 
 ## 111
 
-\\\#RapeCultureIsWhen \>\> How to Get Out of the Friendzone XXXXXXXX
+#RapeCultureIsWhen \>\> How to Get Out of the Friendzone XXXXXXXX
 
 ## 112
 
@@ -571,7 +571,7 @@ A nice sub man bought me a glow-in-the-dark butt plug—I’d take a picture but
 
 ## 144
 
-It just occurred to me that due to my fae-like nature and articulate skill with pixels—I should claim the title of “pixel pixie”—God damn: this TRANS! woman has the self-confidence of a man!! *These make me feel like a magical girl* *XXXXXXXX* *You know how no one really gets high the first time they smoke weed? (Anal is the same way)* **You all please help: I’m supposed to only like queer girls, non-binary people and the occasional non-queer cis girl (argh)** Just had some guy I don’t know come on my page to “explain” that marginalized people should expect violence for existing in public—oh—also—literally repeating the threats and stalking I’ve received and people advocating I be murdered: was me “aggrandizing” things—*I seriously need them so bad for a project and if someone buys me them I’ll make it worth their while* **(sees herself as a sex worker rather than a worthy recipient)**—*Look at this great outfit I got in the mail!*—*do cute boys like goth babes?* **(She wants her TRANS!ness to be irrelevant but the fact is that—among many—it is relevant)** *\#StopSayingCis is dominated by TRANS! people and actual feminists (shouting it down)*—*good*—*I’m sexually appealing*—*@corpse sometimes goes by “Velvet Boyfriend.”*
+It just occurred to me that due to my fae-like nature and articulate skill with pixels—I should claim the title of “pixel pixie”—God damn: this TRANS! woman has the self-confidence of a man!! *These make me feel like a magical girl* *XXXXXXXX* *You know how no one really gets high the first time they smoke weed? (Anal is the same way)* **You all please help: I’m supposed to only like queer girls, non-binary people and the occasional non-queer cis girl (argh)** Just had some guy I don’t know come on my page to “explain” that marginalized people should expect violence for existing in public—oh—also—literally repeating the threats and stalking I’ve received and people advocating I be murdered: was me “aggrandizing” things—*I seriously need them so bad for a project and if someone buys me them I’ll make it worth their while* **(sees herself as a sex worker rather than a worthy recipient)**—*Look at this great outfit I got in the mail!*—*do cute boys like goth babes?* **(She wants her TRANS!ness to be irrelevant but the fact is that—among many—it is relevant)** #StopSayingCis is dominated by TRANS! people and actual feminists (shouting it down)*—*good*—*I’m sexually appealing*—*@corpse sometimes goes by “Velvet Boyfriend.”*
 
 ## 145
 
@@ -682,7 +682,7 @@ Nah just chemically castrate them. *I wanna fight all grown men who are 5’5”
 
 ## 172
 
-Older men: “Age is just a number!!—Don’t be shallow—I have so much to offer!” Older men: “Please be 18-25.” I don’t care about age: I would happily date a guy who was 40 if we were compatible—but I don’t care to be patronized or fetishized. There are very attractive men in their forties—(as long as they aren’t creepy about younger girls) **”He went to Jared”-style relationships demean both men and women.** Rape demeans both men and women. *\#KillAllMen is a joke hashtag*—*not advocating murder.*
+Older men: “Age is just a number!!—Don’t be shallow—I have so much to offer!” Older men: “Please be 18-25.” I don’t care about age: I would happily date a guy who was 40 if we were compatible—but I don’t care to be patronized or fetishized. There are very attractive men in their forties—(as long as they aren’t creepy about younger girls) **”He went to Jared”-style relationships demean both men and women.** Rape demeans both men and women. *#KillAllMen is a joke hashtag*—*not advocating murder.*
 
 ## 173
 
@@ -754,7 +754,7 @@ Cheap and Plentiful XXXXXXXX **Even if men’s sperm is plentiful, that doesn’
 
 ## 190
 
-Eighteen—the ultimate weapon: When dealing with an attractive older guy: “But I’m 18!” When dealing with a creepy older guy: “I’m only 18”—*I’m making a list of exemptions (but basically planning a mass killing) of all the garbage boys on this planet*—*I’d kick you all in the dingus if I could*—*A reminder that women are not here to be beautiful for others (the following post motivated today’s art history presentation)* *XXXXXXXX* The struggle is real XXXXXXXX *(While my girlfriend is at school) I been flying girls in from other states to fuck \\#NoLocalPussy*—\\#*MichiganState* *\\#KillAllMen* The most unrealistic thing I see in movies these days is how many men actually seem to be good in bed!—*Gentlemen: every time you insult a woman for her looks, we know everything we’ll ever need to know about your penis size.*
+Eighteen—the ultimate weapon: When dealing with an attractive older guy: “But I’m 18!” When dealing with a creepy older guy: “I’m only 18”—*I’m making a list of exemptions (but basically planning a mass killing) of all the garbage boys on this planet*—*I’d kick you all in the dingus if I could*—*A reminder that women are not here to be beautiful for others (the following post motivated today’s art history presentation)* *XXXXXXXX* The struggle is real XXXXXXXX *(While my girlfriend is at school) I been flying girls in from other states to fuck #NoLocalPussy*—*#MichiganState* *#KillAllMen* The most unrealistic thing I see in movies these days is how many men actually seem to be good in bed!—*Gentlemen: every time you insult a woman for her looks, we know everything we’ll ever need to know about your penis size.*
 
 ## 191
 
@@ -762,7 +762,7 @@ Dude: I’m trying to fill up my tank—I don’t wanna talk to you—I don’t 
 
 ## 192
 
-Proud teen girl advocate—not here for teen boys though (gross) *Is using “guys” as a gender-neutral term anti-feminist?* I’ve never had a problem with it (I’m also ok with dude—for the record) **I don’t think so (since male seems to be seen as default and unmarked)—might be feminist to call a multi-gender group “gals” though.** I think it is the same as a guy using “bitches” as a gender-neutral term—so no. *I love making fun of cis/het boys*—*they’re so weak all you have to say is “nice tube socks” in a sarcastic tone for them to break down.* Because many men think that one “yes” after eleven “no”s still counts as consent **\#SolidarityIsForRapists** Sex on the first date is good—what if you’ve been dating for six months and you find out he has a small dick (“micropenis”) **The girl working at the gas station looked particularly well for a girl working at a gas station.** Presented without comment XXXXXXXX (Are Men Necessary?)—Grab her booty in front of fuckboys who want her. *Only fuckboys say “females”*—*lmfao*—Curse incantation: may any man who dares to voice an opinion on reproductive rights..may he need (and be denied access to) boner pills—**What if all white cis dudes just stopped writing for one year. Lit would be so rad that year.**
+Proud teen girl advocate—not here for teen boys though (gross) *Is using “guys” as a gender-neutral term anti-feminist?* I’ve never had a problem with it (I’m also ok with dude—for the record) **I don’t think so (since male seems to be seen as default and unmarked)—might be feminist to call a multi-gender group “gals” though.** I think it is the same as a guy using “bitches” as a gender-neutral term—so no. *I love making fun of cis/het boys*—*they’re so weak all you have to say is “nice tube socks” in a sarcastic tone for them to break down.* Because many men think that one “yes” after eleven “no”s still counts as consent *#SolidarityIsForRapists* Sex on the first date is good—what if you’ve been dating for six months and you find out he has a small dick (“micropenis”) **The girl working at the gas station looked particularly well for a girl working at a gas station.** Presented without comment XXXXXXXX (Are Men Necessary?)—Grab her booty in front of fuckboys who want her. *Only fuckboys say “females”*—*lmfao*—Curse incantation: may any man who dares to voice an opinion on reproductive rights..may he need (and be denied access to) boner pills—**What if all white cis dudes just stopped writing for one year. Lit would be so rad that year.**
 
 ## 193
 
