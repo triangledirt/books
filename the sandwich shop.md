@@ -1,6 +1,6 @@
 # the sandwich shop
 
-[▵dirt](simplenote://note/b0b5ce540c644fc2ad1a9ca9ce33875c) / [@th1sm0rtalcoil](https://twitter.com/th1sm0rtalcoil)
+[▵dirt](https://triangledirt.com) / [@ghettorich](https://stranger.social/@ghettorich)
 
 ## 1
 
