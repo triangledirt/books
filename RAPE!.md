@@ -8,7 +8,7 @@ School is just a pretense. No one care about classes or grades. In class we get 
 
 The main way to get pussy be in the club. Get a bitch drunk, go to her place, fuck her. She wake up in the morning like what the hell happened to me, her cooch aching like she had a rolling pin up there. She ask her girlfriends, and they be like, "You remember that one guy? You took him home." Then you fuck her friends.
 
-Bitches love dick. They is no question about it. Some bitches pretend they ain't into all that---but they is. Trust me, they is.
+Bitches love dick. They is no question about it. Some bitches pretend they ain't into all that—but they is. Trust me, they is.
 
 I met this one bitch, she likes to have two dicks inside her at once. She told me this when I was fucking her. So me and my buddy James fucked her. Two dicks in her pussy at the same time! That girl had a big cooch.
 
@@ -30,13 +30,13 @@ Some males think that females are out of they reach. They do they pathetic littl
 
 There are only two ways to get laid: get her drunk or have her like you. The first is foolproof whereas the second is hit or miss. If you wait around for a girl to like you, you could be waitin' a long time. When you get a bitch drunk, results are immediate.
 
-You go out with your boys, looking sharp in a nice shirt or something. Hair slicked back, plenty of product. (Bitches like product.) You select a nice club preferably on State Street. Then you sit back and wait. The bitches will be on you like peanut butter on jelly. When they dance, you might be tempted to go to them. But don't. Bitches like when you stay put. You watch them dance. You check out the way they move. You think: is this the kind of bitch who is likely to have a live pussy? Is she likely to be too stuck up? Too resistant to force? Does she have mace? Watch the warning signs. A bitch who thinks too much is likely to have friends who think too much. You want an academic bitch, no doubt---where's the fun in fucking a dotard? You want a bitch in high-level classes but who likes to drink like your uncle. A bitch who likes to party too much for her own good. A bad bitch. A bitch who likes to get in trouble.
+You go out with your boys, looking sharp in a nice shirt or something. Hair slicked back, plenty of product. (Bitches like product.) You select a nice club preferably on State Street. Then you sit back and wait. The bitches will be on you like peanut butter on jelly. When they dance, you might be tempted to go to them. But don't. Bitches like when you stay put. You watch them dance. You check out the way they move. You think: is this the kind of bitch who is likely to have a live pussy? Is she likely to be too stuck up? Too resistant to force? Does she have mace? Watch the warning signs. A bitch who thinks too much is likely to have friends who think too much. You want an academic bitch, no doubt—where's the fun in fucking a dotard? You want a bitch in high-level classes but who likes to drink like your uncle. A bitch who likes to party too much for her own good. A bad bitch. A bitch who likes to get in trouble.
 
 The best is a submissive bitch. Who sucks your dick as soon as you in the dorm room, kneelin' on the floor and shit. Fuck, I love when a bitch sucks my balls. Because you know they don't want to do that shit. But the fact that they'll do it anyway, with all that hair in they mouth..well..some bitches are truly desperate for cock, what can I say?
 
-I tells you about a girl named Mary. Mary be's a freshman, she has they librarian glasses and everything. True scholar. I mean seriously, she was like a Rhodes Scholar or something. Biology major. About 5'2". Big-ass titties. Mary comes up to me in the dorm. Asks me if I'll lick her pussy. I said, Mary, you know I'm not going to lick your pussy. She says Why not. I say, Because, I can smell your nasty pussy from here and I don't lick stinky pussy. She says she'll wash it, and come back, and will I lick her pussy. So I said, Ok, you wash it, and I'll meet you in your room in half an hour. So half an hour passes. I peruse some porn I have on my computer to try and get in the mood---nothing special, just some video of a woman getting fucked by a horse. Then I go up to Mary's room. Knock on the door. She answers in some sort of nineteenth-century neglige, like we're going to make love or something. I said Mary this isn't that kind of party. Then I pull out my gun. I put it in her face and I say, "Get down on your knees and suck my cock." She says, "Is this a joke?" And I say, "No, do you wanna get shot in the head?" So she sucks my cock. I get hard. Then I say, "Mary, get on your stomach on the floor, I'm gonna fuck your ass. Have you ever been fucked in the ass before?" She says no. I say, "Well, you're gonna like this. Just like opening presents on Christmas morning. Don't scream too loud or I'll shoot you in the fucking head, understood?" That's my story about Mary.
+I tells you about a girl named Mary. Mary be's a freshman, she has they librarian glasses and everything. True scholar. I mean seriously, she was like a Rhodes Scholar or something. Biology major. About 5'2". Big-ass titties. Mary comes up to me in the dorm. Asks me if I'll lick her pussy. I said, Mary, you know I'm not going to lick your pussy. She says Why not. I say, Because, I can smell your nasty pussy from here and I don't lick stinky pussy. She says she'll wash it, and come back, and will I lick her pussy. So I said, Ok, you wash it, and I'll meet you in your room in half an hour. So half an hour passes. I peruse some porn I have on my computer to try and get in the mood—nothing special, just some video of a woman getting fucked by a horse. Then I go up to Mary's room. Knock on the door. She answers in some sort of nineteenth-century neglige, like we're going to make love or something. I said Mary this isn't that kind of party. Then I pull out my gun. I put it in her face and I say, "Get down on your knees and suck my cock." She says, "Is this a joke?" And I say, "No, do you wanna get shot in the head?" So she sucks my cock. I get hard. Then I say, "Mary, get on your stomach on the floor, I'm gonna fuck your ass. Have you ever been fucked in the ass before?" She says no. I say, "Well, you're gonna like this. Just like opening presents on Christmas morning. Don't scream too loud or I'll shoot you in the fucking head, understood?" That's my story about Mary.
 
-Mary I fucked in the ass. But I'm almost exclusively a pussy man. Ass fucking is more of a novelty to me, something to do when you don't even respect a girl enough to fuck her cunt. I like a pussy that's nice and clean, no hair, though I'll fuck a hairy pussy---in a pinch. I prefer big pussy lips, no roast beef, nice and tight and plenty of moisture on the inside but no drips. Keep that shit to yourself, you don't need to be flowing all out on the sheets and shit.
+Mary I fucked in the ass. But I'm almost exclusively a pussy man. Ass fucking is more of a novelty to me, something to do when you don't even respect a girl enough to fuck her cunt. I like a pussy that's nice and clean, no hair, though I'll fuck a hairy pussy—in a pinch. I prefer big pussy lips, no roast beef, nice and tight and plenty of moisture on the inside but no drips. Keep that shit to yourself, you don't need to be flowing all out on the sheets and shit.
 
 I like to spank a pussy with a fly swatter, to fatten it up before I fuck it. Get that pussy red with some hard spanks. Then spit on my hand, stick my fingers inside it, then come in with the dick, spreadin' those lips with my dickhead, then sweet, sweet fucking.
 
@@ -85,7 +85,7 @@ Sherman's eyes brighten.
 
 "Where are you gonna do this?"
 
-"In the bathroom. Shut up. So I'm gonna get her in the stall back there. Lock the door. Get that bitch all up on the toilet with her legs spread and eat that bitch out---"
+"In the bathroom. Shut up. So I'm gonna get her in the stall back there. Lock the door. Get that bitch all up on the toilet with her legs spread and eat that bitch out—"
 
 "Why do you like eatin' bitches out so much?"
 
@@ -105,7 +105,7 @@ Sherman is silent. Then he says, "No."
 
 "How do you clock what the bitch eats?"
 
-"What do you think I be doin' in the cafeteria? Why do you think we be sittin' close to where the fly hunnies sit? Do you see the notebook I be carryin' around with me? What do you think is in that? My chemistry homework? No. That's records, my man. Of everything a bitch eats. Stay away from bitches who eat citrus, or bitches who smoke, as that can cause diarrhea. You want a bitch who eats yogurt with every meal. Stay away from vegans---their farts stink. Have you ever smelled a vegan's farts?"
+"What do you think I be doin' in the cafeteria? Why do you think we be sittin' close to where the fly hunnies sit? Do you see the notebook I be carryin' around with me? What do you think is in that? My chemistry homework? No. That's records, my man. Of everything a bitch eats. Stay away from bitches who eat citrus, or bitches who smoke, as that can cause diarrhea. You want a bitch who eats yogurt with every meal. Stay away from vegans—their farts stink. Have you ever smelled a vegan's farts?"
 
 "No."
 
@@ -432,11 +432,11 @@ So Sherman heads over to ye olde dancefloor and tugs on Macro's shirt. I see the
 
 "Whatcha havin'?"
 
-"I'll have the gunslinger's special." I laugh. "That's a special..for gunslingers---"
+"I'll have the gunslinger's special." I laugh. "That's a special..for gunslingers—"
 
 "There's no guns allowed in the bar."
 
-"I know that, I was just saying---"
+"I know that, I was just saying—"
 
 "What are you having? I don't have all night."
 
@@ -888,7 +888,7 @@ I be winnin' this bout.
 
 But then she just opens her mouth and says, "Let's show you your box." And I know I'm dealin' with a quality bitch.
 
-She shows me my box and it's the perfect size for me Glock. We each have a key in this nice arrangement like. When me and the customer service representative put our keys in to turn them, we get real close and I can feel the heat coming off her. She wears this nice woman perfume, I think Clinique Happy---'cause I used to fuck this bitch who wore Clinique Happy. And I can see down this customer service representative's shirt, and see that she wears a bra by Playtex or Kotex or something. It has this cross-my-heart design and it makes me think of my grandmother but in a way that makes me want to lay this Renee down on the floor of the safe and make sweet love right there next to millions of dollars.
+She shows me my box and it's the perfect size for me Glock. We each have a key in this nice arrangement like. When me and the customer service representative put our keys in to turn them, we get real close and I can feel the heat coming off her. She wears this nice woman perfume, I think Clinique Happy—'cause I used to fuck this bitch who wore Clinique Happy. And I can see down this customer service representative's shirt, and see that she wears a bra by Playtex or Kotex or something. It has this cross-my-heart design and it makes me think of my grandmother but in a way that makes me want to lay this Renee down on the floor of the safe and make sweet love right there next to millions of dollars.
 
 "Take your key."
 
@@ -953,7 +953,7 @@ You tell me this, when a girl wears pants that show her labia, what is she sayin
 
 I passed the intersection of State and Union, and all this pussy was overloading my senses, so I took a detour down Union and then onto the quickest side street that would take me away from the onslaught of pussy. It wasn't really the way home but I wasn't relishing an afternoon spent with the stinky faggot so I decided to take the scenic route.
 
-There was still pussy here, in the form of two young vixens wearing booty shorts that said "JUICY" across they butts. Now that's something I could get into, a nice juicy asshole. Or maybe the JUICY was meant to refer to they cooch, to they general ass. I consider the coochi part of the ass---does you?
+There was still pussy here, in the form of two young vixens wearing booty shorts that said "JUICY" across they butts. Now that's something I could get into, a nice juicy asshole. Or maybe the JUICY was meant to refer to they cooch, to they general ass. I consider the coochi part of the ass—does you?
 
 As I approached these two ladies I could hear they conversation. They were talking about guys' dicks.
 
@@ -1045,7 +1045,7 @@ Well soon enough I come to this house which has a sign out front. It says, "DOG 
 
 "I'm just about to bring him out. Hold up here, ok?"
 
-I sit on the porch. In time, my man brings out his dog, which looks like a hound dog, a setter or something---the type of dog you use for hunting.
+I sit on the porch. In time, my man brings out his dog, which looks like a hound dog, a setter or something—the type of dog you use for hunting.
 
 And the first thing I notice about this dog is he has an enormous cock. It's laid up against his belly and it's contracted and everything, but you can tell, this dog is hung. Big boy. I like him already.
 
@@ -1113,7 +1113,7 @@ And the first thing I notice about this dog is he has an enormous cock. It's lai
 
 "Marcy!"
 
-"No, I don't need to meet your bitch. Best you keep that ho to yourself. I'm an off-the-chain motherfucker when it be comin' to bitches, I be showin' 'em my dick and shit, so unless you want me poppin' it out to show your wife---"
+"No, I don't need to meet your bitch. Best you keep that ho to yourself. I'm an off-the-chain motherfucker when it be comin' to bitches, I be showin' 'em my dick and shit, so unless you want me poppin' it out to show your wife—"
 
 "Girlfriend."
 
@@ -1466,7 +1466,7 @@ I do the Scouts' Honor pose. "I will not talk like a gangster."
 
 "You will not ask personal questions."
 
-"I will not ask a single personal question. I will restrict my talk to the weather, the general environment, any people we see, fly hunnies---"
+"I will not ask a single personal question. I will restrict my talk to the weather, the general environment, any people we see, fly hunnies—"
 
 "No fly hunnies."
 
@@ -1547,7 +1547,7 @@ I do the Scouts' Honor pose. "I will not talk like a gangster."
 
 "I hardly know you, how could I be mad at you? Do you want me to be mad at you?"
 
-I looked at this girl, seeing her bra through her shirt and imagining those B cups in my face with her sitting on top of me, my dick upright between her pretty legs sticking into her righteous cunt---for I was becoming surer by the minute that this bitch had a righteous cunt---and I thought of us making love, wild puppy love, yipping and yapping our pleasure at each other like dogs.
+I looked at this girl, seeing her bra through her shirt and imagining those B cups in my face with her sitting on top of me, my dick upright between her pretty legs sticking into her righteous cunt—for I was becoming surer by the minute that this bitch had a righteous cunt—and I thought of us making love, wild puppy love, yipping and yapping our pleasure at each other like dogs.
 
 To this fine bitch I said, "No. I do not want you to be mad at me."
 
@@ -1571,7 +1571,7 @@ She said, "Because I thought you might think that if I was mad at you, that woul
 
 "I likes spending time with you, it doesn't matter if you make demands or not."
 
-"But I bet you're getting off on the fact that I make so many demands on you---aren't you?"
+"But I bet you're getting off on the fact that I make so many demands on you—aren't you?"
 
 "I ain't getting off on anything, Little Miss L."
 
@@ -1597,9 +1597,9 @@ She said, "Because I thought you might think that if I was mad at you, that woul
 
 "Don't bullshit me."
 
-"Well not exactly like an angel, but me's imagines that you have the world pretty much at your fingertips, guys wantin' to be with you and all, and you's havin' your pick of the lot of them..be datin' at your whim, I imagine..not givin' a fuck about nobody..gettin' buck wild with your girlfriends dancin' around in your underwear---!"
+"Well not exactly like an angel, but me's imagines that you have the world pretty much at your fingertips, guys wantin' to be with you and all, and you's havin' your pick of the lot of them..be datin' at your whim, I imagine..not givin' a fuck about nobody..gettin' buck wild with your girlfriends dancin' around in your underwear—!"
 
-"Stop. I don't dance buck wild in my underwear. I don't date---I don't have time for it. I'm a full-time student---"
+"Stop. I don't dance buck wild in my underwear. I don't date—I don't have time for it. I'm a full-time student—"
 
 "I's a full-time student too."
 
@@ -1719,11 +1719,11 @@ Laely kneels too. She pets his face. "Listen, my man. You and I are on two diffe
 
 "No."
 
-"Then that's the pot calling the kettle black. I has had a dog and you hasn't---"
+"Then that's the pot calling the kettle black. I has had a dog and you hasn't—"
 
 "That's not the pot calling the kettle black."
 
-"If I says I have had a dog and you says you haven't---"
+"If I says I have had a dog and you says you haven't—"
 
 "I think you're mistaking that for another expression."
 
@@ -1751,11 +1751,11 @@ Laely kneels too. She pets his face. "Listen, my man. You and I are on two diffe
 
 "That's racist."
 
-"No---"
+"No—"
 
 "Nice meeting you. Bye Seymour. Have a nice life being a menace."
 
-"At least walk me back---let me walk you to the fountain! I'll walk you back and you can continue your reading, and you'll never see me again."
+"At least walk me back—let me walk you to the fountain! I'll walk you back and you can continue your reading, and you'll never see me again."
 
 "Is that a promise?"
 
@@ -1824,7 +1824,7 @@ The door opens. It's the stinky faggot.
 
 "Hey buddy! Who's this?"
 
-"This is Seymour. I'm probably going to rename him---I mean I am going to rename him I just don't know what to rename him yet."
+"This is Seymour. I'm probably going to rename him—I mean I am going to rename him I just don't know what to rename him yet."
 
 "Who's is he?"
 
@@ -1858,7 +1858,7 @@ I nod. "Bitches loooove this dog, roomie! You should see this bitch I met. Fine.
 
 "How do you know anything about her pussy?"
 
-"From my facial reconstructive analysis. You can tell everything you need to know about a bitch's pussy---"
+"From my facial reconstructive analysis. You can tell everything you need to know about a bitch's pussy—"
 
 "From her face. Right. You know that's a load of bullshit, right?"
 
@@ -1908,11 +1908,11 @@ I nod. "Bitches loooove this dog, roomie! You should see this bitch I met. Fine.
 
 "Ew! I doesn't need you to be gay. You just happens to be the most gayest dog-hating roomie that I has ever had!"
 
-"Were you abused as a child, is that why---"
+"Were you abused as a child, is that why—"
 
 "No I wasn't abused! Why? Is you thinkin' about abusin' me, you big stinky faggot?"
 
-"I'm just asking---"
+"I'm just asking—"
 
 "The answer is no. I was never abused. And I'm thinkin' about gettin' reassigned to a non-stinky, non-faggot roommate selection, if you catch me meaning. Now are you going to help me take care of Seymour or not?"
 
@@ -1938,7 +1938,7 @@ The stinky faggot sits back in his desk chair, ponderin' and shit.
 
 "I'm not gay."
 
-"If you want to fuck butts, that's your business---what am I going to say about it? I'm trying to do you a service..by presenting you..with a dog..who can help further your pursuits."
+"If you want to fuck butts, that's your business—what am I going to say about it? I'm trying to do you a service..by presenting you..with a dog..who can help further your pursuits."
 
 "According to you my pursuits are cornholing unsuspecting freshmen."
 
@@ -2022,7 +2022,7 @@ The stinky faggot sits back in his desk chair, ponderin' and shit.
 
 "Sounds romantic."
 
-"To you it wouldn't, fag. That's 'cause you don't know anything about pussy---real pussy. Your three girls a year..you think that teaches you about real pussy? I bet they be fat lesbians you be fuckin', hairy upper lip, don't shave they armpits. I'm talkin' about fresh, clean pussy. Race car pussy. You be fuckin' old jalopy pussy. This is that kind of pussy you get when you're sixteen---'cept I be gettin' that every day. I be fuckin' Little Miss D.---you see. Now I need this Seymour to help keep that bitch's attention, so is you going to let me keep this dog or what?"
+"To you it wouldn't, fag. That's 'cause you don't know anything about pussy—real pussy. Your three girls a year..you think that teaches you about real pussy? I bet they be fat lesbians you be fuckin', hairy upper lip, don't shave they armpits. I'm talkin' about fresh, clean pussy. Race car pussy. You be fuckin' old jalopy pussy. This is that kind of pussy you get when you're sixteen—'cept I be gettin' that every day. I be fuckin' Little Miss D.—you see. Now I need this Seymour to help keep that bitch's attention, so is you going to let me keep this dog or what?"
 
 ## 10
 Stinky faggot said he'd have to think about that, and he left to get some lunch. I locked the door. It seemed like a perfect time to view some porn, if you catch my drift. So I stashed Seymour in the corner and did some searches.
@@ -2033,13 +2033,13 @@ I typed in a string of words something like "cum slut hentai bitch boobs cums re
 
 So I's narrowed my search. I typed "100% real panty girls teens cumming in they britches," thinking that even though britches was an archaic word the internet would know what I mean. This time I got some fine-ass pictures of bitches creamin' they panties, some real 100% bitches including this one bitch who had pink panties and was sittin' in a feather bed playin' with that bitch's own pussy with feathers and a clear dildo bigger than any dick I had ever seen. It made me mad to think of this bitch getting off on that clear dildo, when really it should have been my cock she was getting off with. She almost got me off but then I started thinkin' about how that bitch was probably a real-life lesbian and me's started getting angry about that bitch bein' a lesbian and me started to punch me computer screen and Seymour be gettin' hyped up so me figured me should tone it down a bit.
 
-Another of the real panty girls I found was this ballet dancer, be wearin' a leotard with white things sticking out of her pussy area in case that bitch's pussy be splashin' out when that bitch get excited. The camera was all up in her pussy area and I was thinkin' how that bitch had been a bad, bad bitch---be disobeyin' her dance instructor and shit, be breakin' all the rules---and that bitch's pussy need punishing, and me's the one they sent to do it. 'Cause sometimes when a ballet-dancin' bitch get out of line they like to send in a 100% American gangsta, to quiet that bitch down. She needs her pussy punished, and I is the pussy punisher. I start imaginin' her teachin' ballet steps to me while I fucks her bad, bad, pussy and then I starts wonderin' if I is gay 'cause I's imaginin' her teachin' me ballet steps. Surely no 100% straight dude would imagine a ballet bitch teachin' him dance steps! I's must be a certain percentage gay! Do you think stinky faggot knows?!
+Another of the real panty girls I found was this ballet dancer, be wearin' a leotard with white things sticking out of her pussy area in case that bitch's pussy be splashin' out when that bitch get excited. The camera was all up in her pussy area and I was thinkin' how that bitch had been a bad, bad bitch—be disobeyin' her dance instructor and shit, be breakin' all the rules—and that bitch's pussy need punishing, and me's the one they sent to do it. 'Cause sometimes when a ballet-dancin' bitch get out of line they like to send in a 100% American gangsta, to quiet that bitch down. She needs her pussy punished, and I is the pussy punisher. I start imaginin' her teachin' ballet steps to me while I fucks her bad, bad, pussy and then I starts wonderin' if I is gay 'cause I's imaginin' her teachin' me ballet steps. Surely no 100% straight dude would imagine a ballet bitch teachin' him dance steps! I's must be a certain percentage gay! Do you think stinky faggot knows?!
 
-I search for "100% straight girls with tight pussies no gay stuff" and feel a sigh of relief. This search don't be havin' no gay stuff in it---me specified 100% straight! Me specified no gay stuff. Surely me fantasies this time around won't be includin' no gay-ass fantasies about ballet dancers teaching me to dance! But I don't get anything good with this search so I have to go again.
+I search for "100% straight girls with tight pussies no gay stuff" and feel a sigh of relief. This search don't be havin' no gay stuff in it—me specified 100% straight! Me specified no gay stuff. Surely me fantasies this time around won't be includin' no gay-ass fantasies about ballet dancers teaching me to dance! But I don't get anything good with this search so I have to go again.
 
 "super-tight bitches be havin' pliers in they pussy" gives me nothing. "gator-grip twat" gives me nothing.
 
-I decide to go back to my previous tack. "bitches who be damaged in they mind and will let you cum in they face" gives me some more sad-looking bitches including one about five years old sittin' in her parents' kitchen lookin' like she just got beat with a chain. Welts and shit on her arms. Bruised face. She has all she clothes on, but you can imagine what she grows up like---become one of these college bitches don't care what the fuck you do to 'em, long as it's violent. "bitches who like violence" gives me some bitches who like to inflict violence, and they is not the kind of bitches I is lookin' for.
+I decide to go back to my previous tack. "bitches who be damaged in they mind and will let you cum in they face" gives me some more sad-looking bitches including one about five years old sittin' in her parents' kitchen lookin' like she just got beat with a chain. Welts and shit on her arms. Bruised face. She has all she clothes on, but you can imagine what she grows up like—become one of these college bitches don't care what the fuck you do to 'em, long as it's violent. "bitches who like violence" gives me some bitches who like to inflict violence, and they is not the kind of bitches I is lookin' for.
 
 I try just "sad-looking bitches" and get a jackpot. I get some dogs, some pictures of pigs. But I also gets middle-aged bitches who is just sad, and I almost jerk off over some bitch looks like Hillary Clinton. Then they is some pathetic bitches, in they twenties, who looks depressed. They looks like they need medication. One of these bitches has brown hair and looks like this actress who was famous when I was a kid. I can't help it but this thought of me suckling at her titties flashes into my head. Like she was old enough to be my mom and shit. I can't help it if sick shit comes into my head. That's just the way I'm built.
 
@@ -2051,7 +2051,7 @@ I need some prime bitches. "prime bitches in they prime who has fly skin big tit
 
 The poor fucking dog looks hungry. Maybe stinky faggot is right: this is no place to hold a dog.
 
-I do a search for "girls being tortured" and get a lot of stuff back. Man, you are some disgusting fucks. It's all fake but there's this one on a boat that looks like it's real. Some stuff I never would have thought to search for, a girl with a manual blender up her puss and they're turning the handle. Girls getting cut with razor blades---looks real. I try to think of myself cutting a bitch with a razor blade but I can't..I like straight sex. You have to be really bored to get off on cutting a bitch up, but respect, if that's what gets you off.
+I do a search for "girls being tortured" and get a lot of stuff back. Man, you are some disgusting fucks. It's all fake but there's this one on a boat that looks like it's real. Some stuff I never would have thought to search for, a girl with a manual blender up her puss and they're turning the handle. Girls getting cut with razor blades—looks real. I try to think of myself cutting a bitch with a razor blade but I can't..I like straight sex. You have to be really bored to get off on cutting a bitch up, but respect, if that's what gets you off.
 
 I do a search for "bitch with a baseball bat up her cooter" and I get it, one hit. Some sick fucks stuck a baseball bat up a bitch's cooter and put that picture on the internet.
 
@@ -2144,7 +2144,7 @@ The next few days I kept going back to the fountain. I figured Laely had to go b
 
 "You're comparing me to a horse."
 
-"I'm not sayin' in your face. I mean some bitches they be lookin' like horses all up in they faces. Horse bitches, me's calls them. I've known me some horse bitches in my day. Could introduce you to some horse bitches, if you like. But that's not what I'm sayin' about you. I'm sayin'---have you ever seen the movie The Black Stallion?"
+"I'm not sayin' in your face. I mean some bitches they be lookin' like horses all up in they faces. Horse bitches, me's calls them. I've known me some horse bitches in my day. Could introduce you to some horse bitches, if you like. But that's not what I'm sayin' about you. I'm sayin'—have you ever seen the movie The Black Stallion?"
 
 "When I was a kid."
 
@@ -2214,7 +2214,7 @@ The next few days I kept going back to the fountain. I figured Laely had to go b
 
 "She was right."
 
-"You can't just walk up to a girl and start talking about pussy and hoes and bring your stupid dog up to impress her. You got to show a girl you really care, take her places---"
+"You can't just walk up to a girl and start talking about pussy and hoes and bring your stupid dog up to impress her. You got to show a girl you really care, take her places—"
 
 "I take you places."
 
@@ -2268,7 +2268,7 @@ The next few days I kept going back to the fountain. I figured Laely had to go b
 
 "Ok. My sister, is older. She's the risk taker. My mom is a nurse. My dad is a pilot. My sister raised me, we ate Ramen noodles and watched old movies. Like black-and-white ones. Lots of musicals. We used to sing the songs at the top of our lungs until Mom got home. Now tell me about your family."
 
-"Well. We is raised in the ghetto. Me pops, he was a serial assassin---"
+"Well. We is raised in the ghetto. Me pops, he was a serial assassin—"
 
 "No he wasn't."
 
@@ -2433,7 +2433,7 @@ She was there the next day. I had brought me book. I went up to her and sat down
 
 "Because me wants to have a more complete picture of the subject area, and this be an important author. Don't lets me interrupt you, though, me's has no intention of getting on your bad side, Little Miss. Goes forth with your reading and I's goes forth with mine. We's be two little peas in a pod sittin' on this beautiful fountain with these other people. We's all be academians, and it be's right and proper."
 
-She look me over, and it be like she not know what to be thinkin'. She had a mixture of emotions flowing out of her and I knew that she was feelin' the special feelin's between her legs. She had a kitty cat down there and as you well know cats like to be pet. Rawr rawr! I wants to pet that kitty and treat it nice, then train it to jump when I say jump, train it to open its mouth and take me in. I be stuffin' that cat full of dick with a plumpness. Be gettin' its belly full. Pettin' that cat like meow! Meow! Danger cat. Freaky cat. I was startin' to wish that that pussy had the slightest bit of hair on it, not shaved like I usually like 'em. Not hairy though---I turn a bitch away for havin' hair on her pussy.
+She look me over, and it be like she not know what to be thinkin'. She had a mixture of emotions flowing out of her and I knew that she was feelin' the special feelin's between her legs. She had a kitty cat down there and as you well know cats like to be pet. Rawr rawr! I wants to pet that kitty and treat it nice, then train it to jump when I say jump, train it to open its mouth and take me in. I be stuffin' that cat full of dick with a plumpness. Be gettin' its belly full. Pettin' that cat like meow! Meow! Danger cat. Freaky cat. I was startin' to wish that that pussy had the slightest bit of hair on it, not shaved like I usually like 'em. Not hairy though—I turn a bitch away for havin' hair on her pussy.
 
 "'Scuse me Little Miss."
 
@@ -2589,7 +2589,7 @@ So I looked some more.
 
 "You think I can make you happy. When I touch you. That I could touch you just right."
 
-"You just don't stop, do you? I don't want to be with you. We're never getting together. I'm tolerating you out of the goodness of my heart because you seem pathetic and you obviously don't have any friends. You carry around that book which you obviously haven't read---"
+"You just don't stop, do you? I don't want to be with you. We're never getting together. I'm tolerating you out of the goodness of my heart because you seem pathetic and you obviously don't have any friends. You carry around that book which you obviously haven't read—"
 
 "I has read this book, bitch."
 
@@ -2934,7 +2934,7 @@ Laely laughs.
 
 "Uh-uh."
 
-"One drink we share between us---half a drink."
+"One drink we share between us—half a drink."
 
 "No thank you."
 
@@ -3147,7 +3147,7 @@ I watches her finish her drink, and at least once she has that straw in her mout
 
 "Straight."
 
-So we goes to the dance floor, and she leads me with one hand yo, and I'm thinkin', am I the luckiest man in the world that tonight I'm gonna get to sleep with this bitch?! This be one fine sensitive bitch! This ain't be yo' regular-type ho, with a nasty cooter and an attitude. This be a pure and kind, tight-pussy-havin', nice-girl student with a 3.0 grade point average---maybe higher! This be the kind of bitch ain't never sucked a dick in her life!
+So we goes to the dance floor, and she leads me with one hand yo, and I'm thinkin', am I the luckiest man in the world that tonight I'm gonna get to sleep with this bitch?! This be one fine sensitive bitch! This ain't be yo' regular-type ho, with a nasty cooter and an attitude. This be a pure and kind, tight-pussy-havin', nice-girl student with a 3.0 grade point average—maybe higher! This be the kind of bitch ain't never sucked a dick in her life!
 
 She starts dancin', and that girl has moves! She's dancin' all sexy like and so I put it into gear and do what I can. All the times I just want to scream, "This bitch is with me!" And then me starts thinkin' about kissing her, getting all slobbery and sticking my tongue down her throat. Her boobs brush up against me on the dancefloor and I wonder if she feel it in her nipple. Then my dick starts getting hard.
 
@@ -3229,7 +3229,7 @@ So I buys that bitch another drink.
 
 "This is exactly what theys talk about."
 
-"Oh, reading buddy." She reaches her hand out to mine, and we're touching while she talks. "You took me by surprise, I admit. And you're the last person I thought I'd be attracted to. But underneath your comical exterior, there's a certain honesty that means something to me. My girlfriends would think I'm crazy---to go out with someone who refers to women as bitches. But I can see that you do it in kind of an endearing way."
+"Oh, reading buddy." She reaches her hand out to mine, and we're touching while she talks. "You took me by surprise, I admit. And you're the last person I thought I'd be attracted to. But underneath your comical exterior, there's a certain honesty that means something to me. My girlfriends would think I'm crazy—to go out with someone who refers to women as bitches. But I can see that you do it in kind of an endearing way."
 
 "So is we goin' out now?"
 
@@ -3378,9 +3378,9 @@ She goes for the door.
 
 Me's runs on top of her and grabs that bitch by the hair.
 
-"HELP!" she starts to yell---
+"HELP!" she starts to yell—
 
-But I's clocks that bitch in the back of the head and she falls to the floor. That bitch's face hits the floor---it goes SMACK!
+But I's clocks that bitch in the back of the head and she falls to the floor. That bitch's face hits the floor—it goes SMACK!
 
 There she is, lyin', Laely face down with her red dress, her legs spread apart, she brings a hand to her mouth and gets blood on it. Then she tries to get up and I CRACK my foot into the back of that bitch's head. She goes limp.
 
@@ -3487,7 +3487,7 @@ Me thought of that bitch we had left in Baxter, 211. That bitch had asked for it
 
 That bitch was born a whore. Lived every day of her life as a whore. Just didn't know it yet. Some bitches is like that. They don't know theyselves. They think they be little angels. In reality they be whores. Takes someone like me to teach 'em.
 
-A whore will beg for cock. Beg you for it like that bitch back there begged for it. Dressin' with her panties all stickin' out her legs, dress half on---she beggin' for cock.
+A whore will beg for cock. Beg you for it like that bitch back there begged for it. Dressin' with her panties all stickin' out her legs, dress half on—she beggin' for cock.
 
 A bitch like that want to get fucked. Ain't never been fucked in her life. But needs cock, needs it like you or I needs air. She be playin' around with dildos but a bitch like that wants the real thing, hard and hot between her legs.
 
@@ -3591,7 +3591,7 @@ Me faggot roommate nods.
 
 "So," Donna says, "tell us about the girl you were with tonight."
 
-"Well," me says, "she was normal sized, maybe a little on the petite side, well learned in the areas of political theory, and she's a bit of a lush, which turns me off. Also she had a nice pussy, very muscular and felt good on me dick, only bled a little when we fucked her---"
+"Well," me says, "she was normal sized, maybe a little on the petite side, well learned in the areas of political theory, and she's a bit of a lush, which turns me off. Also she had a nice pussy, very muscular and felt good on me dick, only bled a little when we fucked her—"
 
 "You had a threesome?"
 
@@ -3662,9 +3662,9 @@ Some pussy haunts you. Like this little girl I fucked. She couldn't have been mo
 
 There be more to life than fuckin' twelve year olds, though. Me be growin' up, me be graduatin' to more advanced forms of pussy. Pussy with academic degrees, pussy with a mind attached. Laely was that for me.
 
-Little bitch had come upon me with a quickness, wrapped her legs around me head and squeezed as tight as she could. Laely I hadn't seen coming---that bitch had gotten under my skin. I actually enjoyed talking to that bitch. But every bitch has her day, and Laely had had hers, chalked up with Marks-A-Lot in room 211. That bitch was gonna have to learn to keep her guard up, you can't just be partyin' with people like me.
+Little bitch had come upon me with a quickness, wrapped her legs around me head and squeezed as tight as she could. Laely I hadn't seen coming—that bitch had gotten under my skin. I actually enjoyed talking to that bitch. But every bitch has her day, and Laely had had hers, chalked up with Marks-A-Lot in room 211. That bitch was gonna have to learn to keep her guard up, you can't just be partyin' with people like me.
 
-People like me'll tap that sweet ass when you ain't expectin'. Rush up and slip you the D. She lucky I ain't fuck her ass---a bitch can't walk for days.
+People like me'll tap that sweet ass when you ain't expectin'. Rush up and slip you the D. She lucky I ain't fuck her ass—a bitch can't walk for days.
 
 And that blood..comin' out her pussy. Bitch had been a virgin.
 
@@ -3806,7 +3806,7 @@ The other officer holds out a picture. It be Laely.
 
 "Let me thinks." Me looks at the picture again. "I thinks me would remember having sexual relations with her. Is this the best picture you have? You have something more revealing maybe? In a different outfit? Because I don't always recognize a girl until she take all her clothes off. Do you has a picture of her pussy?"
 
-"As a matter of fact we do, but---"
+"As a matter of fact we do, but—"
 
 "You keepin' that one for yourself?"
 
@@ -3921,7 +3921,7 @@ The police officers walked a little behind me. And I knew who they were taking m
 
 We walked up the hill, passing many students who were on their way to class. I saw a group of females standing in a circle, obviously high-class females, with football sweaters and ponytails. One of them looked at me.
 
-"Eh there, would you mind escorting me to the jailhouse? You is obviously a bitch of class and I would be honored if you walked with me as the jaws of justice work their nasty ways---do you fancy that?"
+"Eh there, would you mind escorting me to the jailhouse? You is obviously a bitch of class and I would be honored if you walked with me as the jaws of justice work their nasty ways—do you fancy that?"
 
 She turned away.
 
@@ -4007,7 +4007,7 @@ I blinks. "In the puss or in the butt?"
 
 "Whatever."
 
-"Me's explains something to you. When a guy wants a girl's puss, he be willin's to do just about anything to get it. That include buyin' a girl flowers, puttin' up with a bitch who runs her mouth off, and, yes, punchin' a bitch in the mouth if he have to. The need for puss runs strong in men---"
+"Me's explains something to you. When a guy wants a girl's puss, he be willin's to do just about anything to get it. That include buyin' a girl flowers, puttin' up with a bitch who runs her mouth off, and, yes, punchin' a bitch in the mouth if he have to. The need for puss runs strong in men—"
 
 "They aren't real men."
 
@@ -4083,7 +4083,7 @@ I does.
 
 "I'll bite. What is they?"
 
-"The men in that book are suspected---or in some cases convicted---of fucking little girls when they weren't supposed to."
+"The men in that book are suspected—or in some cases convicted—of fucking little girls when they weren't supposed to."
 
 "So all these dudes like to fuck."
 
@@ -4220,7 +4220,7 @@ When I get home, Seymour is there with my roommate.
 
 "But you agrees what she's doin' is a crime."
 
-"Technically, yes. But---"
+"Technically, yes. But—"
 
 "See that's me problem. Me don'ts want to go to jail over no technically. Does you agree that some bitches need to be held down against their will in order to cum?"
 
@@ -4242,7 +4242,7 @@ When I get home, Seymour is there with my roommate.
 
 "But she does."
 
-"Let's say you is punchin' a bitch in the face---because she asked you to---and you cut up that bitch's face in the process. Does you think that a crime?"
+"Let's say you is punchin' a bitch in the face—because she asked you to—and you cut up that bitch's face in the process. Does you think that a crime?"
 
 "I don't know."
 
@@ -4274,7 +4274,7 @@ When I get home, Seymour is there with my roommate.
 
 Me and Seymour headed up the hill. Me was determined to find some hard porno bitches because me knew that Seymour would like it. But alls the way, all me could think about be how sad me would be if me ended up in a cell.
 
-We came into the green, avoided the fountain, and found a path to walk upon. Seymour was promenadin'---he was a fine specimen. None of these other bitches had a dog. That's because none of these bitches knew how to did it right. They be leavin' lost potential and shit. But me's do it right, me's wander the campus with me's companion and look for some naive panty-wearin' freshman---we's find 'em today.
+We came into the green, avoided the fountain, and found a path to walk upon. Seymour was promenadin'—he was a fine specimen. None of these other bitches had a dog. That's because none of these bitches knew how to did it right. They be leavin' lost potential and shit. But me's do it right, me's wander the campus with me's companion and look for some naive panty-wearin' freshman—we's find 'em today.
 
 I sees a pair of bitches walkin' hand in hand and me's shout out to them, "Beware of the muff!" They turn and look at me. "Try some dick ladies!" They continue on. Muff-eatin' bitches need dick the worst.
 
@@ -4330,7 +4330,7 @@ Me's thinks about Laely, and how if that bitch is to be an example, more bitches
 
 Then I be thinkin' I could convince Laely not to say anything, maybe offer to eat her pussy or give her a gift or something. Maybe then that bitch decide to keep quiet. The problem be how to approach that bitch. She likely be not wantin' to see me after I cracked her head open. Or wrote all over that bitch's body. Or shagged her pink ass. That bitch likely be mad.
 
-Bitches often be mad after you fuck 'em. But I never wrote all over a bitch's body before. That be some special shit---Laely only. She get the icing on the cake. Still, me missed her pussy.
+Bitches often be mad after you fuck 'em. But I never wrote all over a bitch's body before. That be some special shit—Laely only. She get the icing on the cake. Still, me missed her pussy.
 
 Laely be makin' special problems for me by reportin' this shit. The nerve of that bitch. She be askin' to get fucked and then that bitch be cryin' it weren't that way. That be a shady-ass move for a bitch to play. Be likin' a motherfucker then be callin' the cops.
 
@@ -4457,7 +4457,7 @@ Clark Kent looks at me. "My girlfriend called the cops on me."
 
 "Obviously. Hence you bein' here."
 
-"She says that I fucked her while she was sleeping. She was passed out---that's what she says. Says she didn't know it was happening. Then she gets all mad when she wakes up and I was.."
+"She says that I fucked her while she was sleeping. She was passed out—that's what she says. Says she didn't know it was happening. Then she gets all mad when she wakes up and I was.."
 
 "You is fuckin' her."
 
@@ -4475,7 +4475,7 @@ Clark Kent looks at me. "My girlfriend called the cops on me."
 
 "Drug her with what?"
 
-"Any kind of sedative. Just---like he says---make sure that bitch is really out." The bodybuilder's voice is soft, gentle. He continues, "I like to drug a dude with a mixture of hard liquor and horse tranquilizers before I fuck him. Get that dude nice and sedate. Then I can have my way with him for three, four hours before he wakes up. And by then, all he remembers is that we were drinking. I just tell him he passed out."
+"Any kind of sedative. Just—like he says—make sure that bitch is really out." The bodybuilder's voice is soft, gentle. He continues, "I like to drug a dude with a mixture of hard liquor and horse tranquilizers before I fuck him. Get that dude nice and sedate. Then I can have my way with him for three, four hours before he wakes up. And by then, all he remembers is that we were drinking. I just tell him he passed out."
 
 "That's brilliant," I say. "And if you don't fuck a bitch's cooch up too much she'll never suspect!"
 
@@ -4485,7 +4485,7 @@ Clark Kent looks at me. "My girlfriend called the cops on me."
 
 "Can you's hook me up, too? Because I's got a bitch that could use some of that."
 
-"Yeah. Just give me your numbers. I got horse tranquilizer, donkey tranquilizer, stuff they use in zoos---"
+"Yeah. Just give me your numbers. I got horse tranquilizer, donkey tranquilizer, stuff they use in zoos—"
 
 "Let me ask you this. How does you decide between donkey tranquilizer and horse tranquilizer for a particular bitch?"
 
@@ -4531,7 +4531,7 @@ The bodybuilder nods.
 
 "So what are you in for?"
 
-"Oh, this bitch. Little pink-ass bitch name of Laely. I fell in love with this bitch one day in the coffeehouse. Defiant little bitch. Won't take shit off nobody. Instantly liked this bitch. Spent weeks getting to know her. Bought my dog Seymour here just to impress that bitch. And that worked for a while. But it take more than a dog to get into a bitch's panties---most bitches anyway. This bitch be a special breed."
+"Oh, this bitch. Little pink-ass bitch name of Laely. I fell in love with this bitch one day in the coffeehouse. Defiant little bitch. Won't take shit off nobody. Instantly liked this bitch. Spent weeks getting to know her. Bought my dog Seymour here just to impress that bitch. And that worked for a while. But it take more than a dog to get into a bitch's panties—most bitches anyway. This bitch be a special breed."
 
 "So wha'd you do to her?"
 
@@ -4557,7 +4557,7 @@ Just then my favorite university police officer came in. He be havin' Laely in t
 
 "Now, all of you, keep your mouths shut. If you harass my witness I'll arrest you. We don't have a proper line up room, so we're stuck with this, ok everybody? Now, sit up straight. The witness can enter the room now."
 
-Officer Somebody stood at the door with his hand on his gun. Laely came in the room and instantly Seymour recognized her---he stood up and was waggin' his tail and shit. Laely went to the dog. She kneels right in front of him and holds her hand out. Seymour licks her, and Laely smiles.
+Officer Somebody stood at the door with his hand on his gun. Laely came in the room and instantly Seymour recognized her—he stood up and was waggin' his tail and shit. Laely went to the dog. She kneels right in front of him and holds her hand out. Seymour licks her, and Laely smiles.
 
 Her face is bruised, and her neck too, and she has a gash on her lip.
 
@@ -5126,7 +5126,7 @@ Some other bitch comes over. This one' name tag say Nurse Charlene.
 
 "I'll send her over."
 
-"Better, bitch." I say it quietly but she turn around---she hear me.
+"Better, bitch." I say it quietly but she turn around—she hear me.
 
 Nurse Paula must be takin' some long smoke breaks 'cause I sit there for a long time. I remember stinky faggot borrowin' some dude's car and drivin' me to the university hospital. And he stayed with me for a while. That dude alright, 'cept that he a butt muncher. I can't abide a dude that munch on another dude's butt.
 
@@ -5176,11 +5176,11 @@ Eventually Nurse Paula comes back around.
 
 "So don't be fuckin' other niggas' bitches."
 
-"Whatever you have to do. It's not your fault that you were attacked---and I can offer you some student counselling opportunities for survivors of violent crimes---but if you can do anything to avoid head injuries in the future, that will be a good thing."
+"Whatever you have to do. It's not your fault that you were attacked—and I can offer you some student counselling opportunities for survivors of violent crimes—but if you can do anything to avoid head injuries in the future, that will be a good thing."
 
 "I's straight on that front. Me be avoidin' head injuries like the plague. Do you get a lot of bitches in here who be gettin' fucked in they pussies against they will?"
 
-"You mean women who have been---"
+"You mean women who have been—"
 
 "Like if four guys fucked they pussy when they wasn't expectin' and they got fucked up in the head about it, maybe 'cause they got cracked in the face by somebody's foot..you get a lot of bitches like that?"
 
@@ -5228,9 +5228,9 @@ Paula moves closer to me on the bed. "Are we talking about Laely Donaldson?"
 
 I be silent.
 
-Nurse Paula continue. "You've taken something gentle, something loving, and turned it into an act of violence. Sex is supposed to be for everyone's pleasure. And for you, it's become an act of power. All you care about is holding the other person down---not lifting them up, as sex can be when it's loving."
+Nurse Paula continue. "You've taken something gentle, something loving, and turned it into an act of violence. Sex is supposed to be for everyone's pleasure. And for you, it's become an act of power. All you care about is holding the other person down—not lifting them up, as sex can be when it's loving."
 
-"Nurse Paula, does you know what it's like to be a man, to have a sex drive so powerful that you is willing to kill a person to have sex with them? That you willing to go to jail to fuck a bitch. Does you know what it like to need pussy so bad that you willing to do anything---anything---to get into that bitch's panties? Does you? Does you know about that?"
+"Nurse Paula, does you know what it's like to be a man, to have a sex drive so powerful that you is willing to kill a person to have sex with them? That you willing to go to jail to fuck a bitch. Does you know what it like to need pussy so bad that you willing to do anything—anything—to get into that bitch's panties? Does you? Does you know about that?"
 
 "I guess not. But I do know what it's like to be a woman, to be around that kind of male energy, and never know if a guy is going to kiss you goodnight or force his way into your house and hold you down and fuck you. I know what it's like to be afraid of men. And I know what it's like to have a daughter, and be scared of her growing up, because I worry, every night, about what men are going to do to her."
 
@@ -5309,7 +5309,7 @@ I crutch my way into the room. There be some old people in there.
 
 Laely looks at me.
 
-"That's good she has you. Life be hard, and havin' parents that care is an important piece of the puzzle. Laely be lucky she be havin' you. Me own parents---"
+"That's good she has you. Life be hard, and havin' parents that care is an important piece of the puzzle. Laely be lucky she be havin' you. Me own parents—"
 
 "We don't need to hear about your parents," Laely say. "Dad was just telling stories about me as a girl. Dad, why don't you continue."
 
@@ -5397,7 +5397,7 @@ Laely nods.
 
 "No."
 
-"Well that's too bad. There's no more rewarding relationship than the one between a man and a woman. Or a man and a man if you're into that sort of thing---"
+"Well that's too bad. There's no more rewarding relationship than the one between a man and a woman. Or a man and a man if you're into that sort of thing—"
 
 "No ma'am."
 
@@ -5411,7 +5411,7 @@ Laely nods.
 
 Laely glares at me.
 
-"I mean that in the most wholesome way." I point with my crutch. "Look, Laely, about anything that might have happened the other day---"
+"I mean that in the most wholesome way." I point with my crutch. "Look, Laely, about anything that might have happened the other day—"
 
 "Just shut it."
 
@@ -5500,7 +5500,7 @@ I chew my mashed potatoes. The gravy is runny and cardboard-tasting.
 
 "Tell me you don't like that bitch's cooch too."
 
-"Toc---"
+"Toc—"
 
 "Tell me. Tell me you don't have a special place in your hardened heart for Laely' little cooch. Cans you tell me that? Cans you? No. I know you likes that bitch."
 
@@ -5526,7 +5526,7 @@ Tic Toc takes a swig off his chocolate milk. "Don't tell me you is givin' up. I 
 
 "These bitches just be comin' here to get they education. They don't be comin' to get Magic Markers stuck up they pussy."
 
-"Yes they do," Tic Toc smiles. "Yes they do. That's exactly why these bitches come to this school. This be a party school. It be that for a reason. Bitches come here to get they pussies reamed out by fools like us. That part of why they come here! If we wasn't doin' what we's do they wouldn't be gettin' they full experience! We as much a part of this campus as Dr. Ping's philosophy department or the gyro truck or the greens. You cain't take us out of the equation---wouldn't be no school left!"
+"Yes they do," Tic Toc smiles. "Yes they do. That's exactly why these bitches come to this school. This be a party school. It be that for a reason. Bitches come here to get they pussies reamed out by fools like us. That part of why they come here! If we wasn't doin' what we's do they wouldn't be gettin' they full experience! We as much a part of this campus as Dr. Ping's philosophy department or the gyro truck or the greens. You cain't take us out of the equation—wouldn't be no school left!"
 
 "Listen, Tic. You do whatever you want. I'm just sayin', after Laely, I'm done."
 
@@ -5620,7 +5620,7 @@ Tic Toc shakes his head. "You losin' it, man. Need to check out student counsell
 
 "Don't do it yo! That girl be with her friends. They likely be hatin' on you, bro!"
 
-"They should. They should hate on me. We--- We fucked that girl up, we deserve their hate."
+"They should. They should hate on me. We— We fucked that girl up, we deserve their hate."
 
 "Is somethin' wrong with you, man."
 
@@ -5638,7 +5638,7 @@ I'm just thinkin' I'll say what I have to say to that bitch and move on, and may
 
 So I get to the table, and I'm crutching my way along, rest my foot on the floor and Laely stands up and throws her tray in my face. The plastic tray falls makin' a loud sound, the silverware falls and I have mashed potatoes in my face and gravy running down my arm and both of the crutches.
 
-Laely look terrified---like I just beat her up or something. She face trembling. She about to cry.
+Laely look terrified—like I just beat her up or something. She face trembling. She about to cry.
 
 "I don't want to see you," she say, and she turn her back to me and run away. She headin' for the cafeteria bathrooms and one of her friends be goin' that way.
 
@@ -5653,15 +5653,15 @@ I's be thinking about that cigarette-lightin' bitch as I walks through the green
 
 Before I's knows it I's at me and Laely's spot: the fountain. I's hadn't planned on goin' here, exactly, but this was like the only spot to go, as of late. It be where Laely and I sit and talk about books, where we met and where she first pet me dog. I be missin' that bitch somethin' fierce, and be sad that we be comin' to the end of our acquaintance.
 
-I sits on the edge of the fountain, puttin' my crutches next to me. I get a dirty look from a bitch who must not like cripples---she move away when I sit down. I be thinkin' about how cruel a world it be where a bitch don't like a nigga just because he walk with a limp, that she move away from him when he sit down next to her, when it strike me that bitches have it hard, too.
+I sits on the edge of the fountain, puttin' my crutches next to me. I get a dirty look from a bitch who must not like cripples—she move away when I sit down. I be thinkin' about how cruel a world it be where a bitch don't like a nigga just because he walk with a limp, that she move away from him when he sit down next to her, when it strike me that bitches have it hard, too.
 
 To be a bitch in this world, comes with a special set of disadvantages.
 
 First of all, bitches be weak. Which mean that any nigga that come alone can hold that bitch down and fuck her. Whereas if you're a guy, and some guy attacks you, you have a fighting chance. But a bitch, no. Unless she a really big bitch, then she might be able to fight a nigga off. But no one wants to fuck a really big bitch anyway, so she don't have no problems.
 
-Bitches bein' weak also mean they can't play the major sports---you don't see bitches playin' football. And it also mean that bitches run weird. Has you ever seen a bitch run? They run like a cross between an insect and a butterfly, with they arms flailin' about. You have to think that does some damage to a bitch, psychologically---the fact that they run like a mantis.
+Bitches bein' weak also mean they can't play the major sports—you don't see bitches playin' football. And it also mean that bitches run weird. Has you ever seen a bitch run? They run like a cross between an insect and a butterfly, with they arms flailin' about. You have to think that does some damage to a bitch, psychologically—the fact that they run like a mantis.
 
-Also, bitches be preoccupied with they looks. And of course we like that---we like a bitch to be lookin' fine. But that has to take a toll on a bitch, her bein' always concerned with she hair and she toenails and she scent and shit. Me I just spray on some Drakkar Noir and get out the door, but a bitch..she gots to be perfumed in all the right places. She gots to have pumpkin spice-flavored yeast infection cream, for chrissake. I mean a bitch gotta have separate perfume for her hoo ha that be separate for her perfume for she armpits and that be separate for her perfume for she hair. That shit be tiresome.
+Also, bitches be preoccupied with they looks. And of course we like that—we like a bitch to be lookin' fine. But that has to take a toll on a bitch, her bein' always concerned with she hair and she toenails and she scent and shit. Me I just spray on some Drakkar Noir and get out the door, but a bitch..she gots to be perfumed in all the right places. She gots to have pumpkin spice-flavored yeast infection cream, for chrissake. I mean a bitch gotta have separate perfume for her hoo ha that be separate for her perfume for she armpits and that be separate for her perfume for she hair. That shit be tiresome.
 
 A bitch's looks is very important, because without it a bitch has nothing. It don't matter how smart a bitch is if she don't got looks, because nobody pay attention to an ugly bitch. This a hard fact of life, but it be a fact bitches has to accept. A cute bitch can go far in life. An ugly bitch, not so much. That sucks for ugly bitches.
 
@@ -5673,11 +5673,11 @@ A bitch gots to shave her pussy. Otherwise, it be like the Amazon down there. Es
 
 Laely got it right: keep that ass clean, keep that pussy shaved. I think she be moisturizin' her ass because when we was fuckin' her I gotst a couple fingers down there and that ass felt like watermelon seabreeze or some shit.
 
-Laely be keepin' her pussy tight, be keepin' her hair done, breasts ridin' high---always lookin' right. She be seemin' like she lead a charmed life, if you ask me. But then me thinks about what we dids to her.
+Laely be keepin' her pussy tight, be keepin' her hair done, breasts ridin' high—always lookin' right. She be seemin' like she lead a charmed life, if you ask me. But then me thinks about what we dids to her.
 
 Imagine it. You is goin' out for drinks with a guy and he intentionally get you so drunk you's can hardly walk home, such that you has to be leanin' on the guy and shit.
 
-You get home. That motherfucker argues with your ass, then kicks yo' ass across the room. You be hittin' the door and BAM! you be goin' down. Half conscious, you be lyin' in a pool of your own blood---bleedin' from the lip.
+You get home. That motherfucker argues with your ass, then kicks yo' ass across the room. You be hittin' the door and BAM! you be goin' down. Half conscious, you be lyin' in a pool of your own blood—bleedin' from the lip.
 
 Your cooch be scared, because you know this nigga wants to bone. It be curlin' up in all its inside places, fearin' the cock that wants to FUCK IT!
 
@@ -5714,7 +5714,7 @@ I say nothing.
 
 Laely walks around to the other side of the fountain. I can see her through the water. She sits, opens her book, and starts to read.
 
-She has such a peaceful way about her. Even after what just happened, she sits straight, lips pressed together, and follows the words. She is a proper person, a person with a certain order---an order which should have been destroyed. But which wasn't. I wonder if her pussy's tore while she's sitting there.
+She has such a peaceful way about her. Even after what just happened, she sits straight, lips pressed together, and follows the words. She is a proper person, a person with a certain order—an order which should have been destroyed. But which wasn't. I wonder if her pussy's tore while she's sitting there.
 
 Poor girl if she is. I mean if she tore. I would hate to think about a girl's pussy being tore while she try to read a book. It might distract her from the read.
 
@@ -5738,7 +5738,7 @@ I go over.
 
 "Say it to someone else. We're through."
 
-"I's understands that---"
+"I's understands that—"
 
 "Do you? Do you understand that after what you did to me, there is no going forward? That's the end. So go. Go away. I'm busy."
 
@@ -6246,7 +6246,7 @@ We're in the bank, inside the vault, and the attendant helps me get my box. Then
 
 "It's not cash. Guess again."
 
-"Maybe a bomb. Like you were planning on breaking into the bank and you started by planting a bomb inside the safe. That way you could disable the alarm systems---"
+"Maybe a bomb. Like you were planning on breaking into the bank and you started by planting a bomb inside the safe. That way you could disable the alarm systems—"
 
 "It's not a bomb."
 
@@ -6354,7 +6354,7 @@ Laely frown, I guess 'cause I called her baby. Whatever. You can't please a bitc
 
 "Thanks," she say, and she rest her head on my arm.
 
-We walks like that for a while, and I's thinkin' this must be what it's like to have a little girlfriend. Takin' walks around the campus and bein' peaceful---with a gun in your belt just in case. Nobody was goin' to fuck with Laely, 'cept for me. And even I might not fucks with that bitch too much---that bitch had had enough. A good bitch needs a rest from time to time. She need to rest she pussy. Give it time to heal, until which time it be available for grand slam fucking once again.
+We walks like that for a while, and I's thinkin' this must be what it's like to have a little girlfriend. Takin' walks around the campus and bein' peaceful—with a gun in your belt just in case. Nobody was goin' to fuck with Laely, 'cept for me. And even I might not fucks with that bitch too much—that bitch had had enough. A good bitch needs a rest from time to time. She need to rest she pussy. Give it time to heal, until which time it be available for grand slam fucking once again.
 
 My poor little Laely' pussy needed time to heal, and me would give it to her.
 
@@ -6462,9 +6462,9 @@ Seymour bark. He bark! Like it was meant to be!
 
 So I get his leash and we lock up the door.
 
-Laely insist on holding the leash. We promenade around the low lands and Laely leadin' us this way and that. I followin' the two of them, it seem like---Laely callin' the shots.
+Laely insist on holding the leash. We promenade around the low lands and Laely leadin' us this way and that. I followin' the two of them, it seem like—Laely callin' the shots.
 
-"Laely, not-bitch, what does you think about me lickin' your pussy---just a little bit. Me be's thinkin' that after the beatin' you took you's could be usin' a little tongue lovin' on yo' pussy. What does you think?"
+"Laely, not-bitch, what does you think about me lickin' your pussy—just a little bit. Me be's thinkin' that after the beatin' you took you's could be usin' a little tongue lovin' on yo' pussy. What does you think?"
 
 "Well," she say, "I'll think about it." Then she silent for a long time.
 
@@ -6480,7 +6480,7 @@ So I'd say, "Laely, not-whore, when you is silent for a long time, do you be thi
 
 "No. Keep telling me what you want to do to me."
 
-So I dids. I be thinkin' this bitch be beat or somethin' as a little kid and she likes to be punished by like havin' sex with her aggressor---somethin' like that. So I be's tellin' her about these complex fantasies I be havin' where Laely be fuckin' me on the hood of a car while we be drivin' down the highway and shit, and all Laely be sayin' is "That's nice." and "Alright." and all this supple-ass feminine responsiveness rhetoric. And I be like: this is one supple-ass bitch! She be lettin' me back inside she panties real soon!
+So I dids. I be thinkin' this bitch be beat or somethin' as a little kid and she likes to be punished by like havin' sex with her aggressor—somethin' like that. So I be's tellin' her about these complex fantasies I be havin' where Laely be fuckin' me on the hood of a car while we be drivin' down the highway and shit, and all Laely be sayin' is "That's nice." and "Alright." and all this supple-ass feminine responsiveness rhetoric. And I be like: this is one supple-ass bitch! She be lettin' me back inside she panties real soon!
 
 Then Laely stop walking.
 
@@ -6577,7 +6577,7 @@ She looks back at me. She ready to cry. "Maybe later," she say.
 
 And I see that girl as fragile, as something that could be broke. And maybe I shouldn't'a treated that bitch that way, robbin' she pussy and shit.
 
-"Laely, I'm sorry---"
+"Laely, I'm sorry—"
 
 "I know."
 
@@ -6647,7 +6647,7 @@ I looks at that bitch. She wants me to spill my guts and shit.
 
 "Well there you go. You're hanging with the wrong bitches."
 
-"If I had a bitch like you---"
+"If I had a bitch like you—"
 
 "Do you want to eat my pussy?"
 
@@ -6799,7 +6799,7 @@ Then, to me horror, Seymour walk around out of me sight and I can feel he's paws
 
 "Good boy. Good boy!" Laely laughs.
 
-Then Seymour's dick is on me butt! I can feel that dog rootin' around between me ass cheeks and his hot balls rubbin' against me ass. And then his dick goes in! That flaming dog dick with its evil protrusion, that way that a dog dick juts out from itself to get longer---and he's fucking! Me own dog! I feel him humping me into the ground and Laely pressin' that gun into my face and laughing. And the dog dick must be lubricating his self because he's going in further and further! I can feel him all the way inside me. And Seymour be barkin' and droolin' on me back and then he thrust inside me one final time and I feel his hot cum shoot inside me and then Seymour give out a whimper.
+Then Seymour's dick is on me butt! I can feel that dog rootin' around between me ass cheeks and his hot balls rubbin' against me ass. And then his dick goes in! That flaming dog dick with its evil protrusion, that way that a dog dick juts out from itself to get longer—and he's fucking! Me own dog! I feel him humping me into the ground and Laely pressin' that gun into my face and laughing. And the dog dick must be lubricating his self because he's going in further and further! I can feel him all the way inside me. And Seymour be barkin' and droolin' on me back and then he thrust inside me one final time and I feel his hot cum shoot inside me and then Seymour give out a whimper.
 
 "Now get out."
 
