@@ -64,6 +64,7 @@ if your deal requires me to sign a contract—the answer is no
 
 yes =)
 
+- [daily photography](https://stranger.social/@dirt)
 - [archive](http://archive.dirt.fastmail.com.user.fm/) (outlines—juvenilia—unfinished) (old version)
 - [tumblr](https://www.tumblr.com/triangledirt) (photos)
 - [listed](https://listed.to/@triangledirt) (blog)
