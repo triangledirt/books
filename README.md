@@ -2,24 +2,6 @@
 
 novels and memoirs of a darkly comic america
 
-## where do you take photos ??
-
-in hallstead pennsylvania and surrounding towns (great bend / susquehanna / conklin)
-
-## what is your photo process ??
-
-i take photos throughout the day of things that catch my eye
-
-i use the [camera m](https://www.camera-m.com/) app
-
-on an iphone 13 pro max
-
-i refrain from adjusting lights or moving stuff in my frames
-
-i color in [darkroom](https://darkroom.co/)
-
-this is my [daily photography](https://triangledirt.com/category/photo/)
-
 ## what is your writing process ??
 
 (when i write) i write every day (usually in the morning) for about two hours
