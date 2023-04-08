@@ -26,7 +26,7 @@ thank you so much for helping me edit !!
 
 ## whats your real name ??
 
-▵dirt
+dirt
 
 inhaesio zha
 
