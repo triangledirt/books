@@ -24,6 +24,16 @@ describe the error
 
 thank you so much for helping me edit !!
 
+## why wont you discuss your books with me ??
+
+i decided not to
+
+for simplicity (in my life) i have decided not to discuss anything
+
+with anyone
+
+ever
+
 ## whats your real name ??
 
 dirt
