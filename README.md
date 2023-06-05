@@ -74,8 +74,8 @@ if your deal requires me to sign a contract—the answer is no
 
 yes =)
 
-- [@dirt@stranger.social](https://stranger.social/@dirt) (photo + ai—social)
-- [dirt.photo](http://www.dirt.photo) (photo + ai—web)
+- [@dirt@stranger.social](https://stranger.social/@dirt) (photo + ai)
+- [dirt.photo](http://www.dirt.photo) (photo + ai)
 - [archive](http://archive.dirt.fastmail.com.user.fm/) (outlines—juvenilia—unfinished)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
 - [tumblr](https://www.tumblr.com/triangledirt) (photos)
