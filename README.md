@@ -4,7 +4,7 @@ novels and memoirs of a darkly comic america
 
 ## which book should i read first ??
 
-[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B).md)
+[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md)
 
 ## what is your writing process ??
 
