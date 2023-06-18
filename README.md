@@ -2,6 +2,10 @@
 
 novels and memoirs of a darkly comic america
 
+## which book should i read first ??
+
+[Clarity;)](https://github.com/triangledirt/books/blob/main/Clarity%3B).md)
+
 ## what is your writing process ??
 
 (when i write) i write every day (usually in the morning) for about two hours
