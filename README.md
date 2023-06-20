@@ -60,7 +60,7 @@ do whatever you want !!
 
 ## can i send you money ??
 
-[sure](https://cash.app/$triangledirt)
+[yes !!](https://cash.app/$triangledirt)
 
 ## can we do business ??
 
