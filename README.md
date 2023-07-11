@@ -16,18 +16,6 @@ i used to drink tea when i wrote—for a while i had a writing hoodie—mostly m
 
 i do a little every day—i dont think about writing when im not doing it—i keep my fingers on the keys the whole time—and i dont stop writing until im finished with the book !!
 
-## i found an error !!
-
-[email me](mailto:dirt@fastmail.com) about it
-
-include the name of the book
-
-include the text of the sentence containing the error
-
-describe the error
-
-thank you so much for helping me edit !!
-
 ## why wont you discuss your books with me ??
 
 i decided not to
