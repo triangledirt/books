@@ -78,6 +78,7 @@ if your deal requires me to sign a contract—the answer is no
 
 yes =)
 
+- [listed.to/@dirt](https://listed.to/@dirt) (blog)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (photo + ai)
 - [dirt.smugmug.com](https://dirt.smugmug.com) (photo + ai)
 - [archive](http://archive.dirt.fastmail.com.user.fm/) (outlines / juvenilia / unfinished)
