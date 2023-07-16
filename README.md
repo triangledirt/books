@@ -44,23 +44,7 @@ my books are published under the [bsd 2-clause](https://github.com/triangledirt/
 
 this means you can use them privately / redistribute them / modify them / sell them
 
-do whatever you want !!
-
-## can i send you money ??
-
-[yes !!](https://cash.app/$triangledirt)
-
-## can we do business ??
-
-no
-
-(will you sign a contract with me—can i license such and such—buy such and such) ??
-
-forget it—dont even ask
-
-you can do what you can do
-
-if your deal requires me to sign a contract—the answer is no
+do whatever you want !
 
 ## is there more ??
 
