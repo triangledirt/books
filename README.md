@@ -44,7 +44,7 @@ my books are published under the [bsd 2-clause](https://github.com/triangledirt/
 
 this means you can use them privately / redistribute them / modify them / sell them
 
-do whatever you want !
+do whatever you want !!
 
 ## is there more ??
 
