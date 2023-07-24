@@ -50,7 +50,7 @@ do whatever you want !!
 
 yes =)
 
-- [listed.to/@dirt](https://listed.to/@dirt) (blog)
+- [lor.sh/@dirt]([https://lor.sh/@dirt) (blog)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (photo + ai)
 - [dirt.smugmug.com](https://dirt.smugmug.com) (photo + ai)
 - [archive](http://archive.dirt.fastmail.com.user.fm/) (outlines / juvenilia / unfinished)
