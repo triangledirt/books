@@ -43,9 +43,9 @@ yes =)
 ### active
 
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
-- [@dirt@stranger.social](https://stranger.social/@dirt) (photo / books)
-- [dirt.smugmug.com](https://dirt.smugmug.com) (photo / ai)
-- [patreon](https://www.patreon.com/dirtlove) (subscription photo / books)
+- [@dirt@stranger.social](https://stranger.social/@dirt) (photos / books)
+- [dirt.smugmug.com](https://dirt.smugmug.com) (photos / ai)
+- [patreon](https://www.patreon.com/dirtlove) (subscription photos / books)
 
 ### inactive
 
