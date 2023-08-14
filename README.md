@@ -4,7 +4,7 @@ novels and memoirs of a darkly comic america
 
 ## which book should i read first ??
 
-[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md) is a good start for a novella
+[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md) is a novella about a couple unexpectedly thrown together at an amusement park (start with this one)
 
 ## what is your writing process ??
 
@@ -15,16 +15,6 @@ i always listen to music (the same song or songs on repeat)
 i used to drink tea when i wrote—for a while i had a writing hoodie—mostly my ritual is a writing drink (coffee lately)
 
 i do a little every day—i dont think about writing when im not doing it—i keep my fingers on the keys the whole time—and i dont stop writing until im finished with the book !!
-
-## why wont you discuss your books with me ??
-
-i decided not to
-
-for simplicity (in my life) i have decided not to discuss anything
-
-with anyone
-
-ever
 
 ## whats your real name ??
 
