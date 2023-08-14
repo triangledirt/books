@@ -50,9 +50,14 @@ do whatever you want !!
 
 yes =)
 
-- [@dirt@stranger.social](https://stranger.social/@dirt) (photo + ai)
+### active
+
+- [@dirt@stranger.social](https://stranger.social/@dirt) (photo + books)
 - [dirt.smugmug.com](https://dirt.smugmug.com) (photo + ai)
-- [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (outlines / juvenilia / unfinished)
+- [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
+
+### archive
+
 - [@dirt@lor.sh](https://lor.sh/@dirt) (blog)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
 - [listed.to/@dirt](https://listed.to/@dirt) (blog)
