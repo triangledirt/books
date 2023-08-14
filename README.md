@@ -56,7 +56,7 @@ yes =)
 - [dirt.smugmug.com](https://dirt.smugmug.com) (photo + ai)
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
 
-### archive
+### inactive
 
 - [@dirt@lor.sh](https://lor.sh/@dirt) (blog)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
