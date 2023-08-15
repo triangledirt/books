@@ -1174,7 +1174,7 @@ A test is not a conversation. In a conversation, both parties can be surprised. 
 
 To take tests is a lie. To give them is a farce. An invitation to participate in farce is an invitation to lie. The response to such an invitation is not yes.
 
-Exploration, Analysis, and Theory
+## Exploration, Analysis, and Theory
 
 People who either explore or analyze, but don't do both, never construct theories. Like the effect of three points whose sequential observation suggests a point, then a line, then a plane, theories have three phases of formation. The first requires exploration, it is when you make observations of things you cannot categorize or understand, things you cannot describe or explain, but you see them anyway, and you make notes, having no idea whether the notes will ever serve any purpose. You have to do this kind of random, for-fun exploration to be primed for the second phase, wherein you are able to analyze data because you now have data to analyze. This is the second point of the three; it is where you construct your theory, and only the analytical do this. If you analyze only, then you never get to the second phase of making a theory. If you explore only (or if you play only), then you never get past the first phase of making a theory. After first exploration and, second, analysis allow you to form a theory, further phases of exploration and analysis verify and expand your theory. But while some thinkers understand this, I think many people, if they do either exploration or analysis with any seriousness, only do one or the other significantly. There is even disdain held by the merely explorative, by the merely analytic, of the other discipline. But you have to do both..if you want to construct a theory.
 
