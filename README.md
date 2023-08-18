@@ -45,7 +45,7 @@ yes =)
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (photos / books)
 - [dirt.smugmug.com](https://dirt.smugmug.com) (photos / ai)
-- [patreon](https://www.patreon.com/dirtlove) (subscription photos / books)
+- [patreon](https://www.patreon.com/dirtlove) (extra / personal)
 
 ### inactive
 
