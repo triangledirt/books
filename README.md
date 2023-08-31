@@ -30,7 +30,7 @@ matthew van temple
 
 yes !!
 
-my books are published under the [bsd 2-clause](https://github.com/triangledirt/books/blob/main/LICENSE) license
+my books are licensed under [cc by 4.0](http://creativecommons.org/licenses/by/4.0/)
 
 this means you can use them privately / redistribute them / modify them / sell them
 
@@ -59,7 +59,3 @@ yes =)
 - [dot oh specification](https://docs.google.com/document/d/18vFDRfgUui8Ye0jJJd3lm088-3u8hnQbBrwKEp6vatM/mobilebasic?authkey=CNub6MEH&hl=en) (language system)
 - [youtube—matthewvantemple](https://m.youtube.com/user/matthewvantemple/videos) (cellular automata / film school / trip across country)
 - [counterpunch](https://www.counterpunch.org/2001/10/09/marginalization-and-terror/) (9/11 article)
-
-### license
-
-this work is licensed under [cc by 4.0](http://creativecommons.org/licenses/by/4.0/)
