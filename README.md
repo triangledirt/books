@@ -32,10 +32,6 @@ yes !!
 
 my books are licensed under [cc by 4.0](http://creativecommons.org/licenses/by/4.0/)
 
-this means you can use them privately / redistribute them / modify them / sell them
-
-do whatever you want !!
-
 ## is there more ??
 
 yes =)
