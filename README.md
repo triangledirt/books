@@ -60,6 +60,8 @@ yes =)
 - [youtube—matthewvantemple](https://m.youtube.com/user/matthewvantemple/videos) (cellular automata / film school / trip across country)
 - [counterpunch](https://www.counterpunch.org/2001/10/09/marginalization-and-terror/) (9/11 article)
 
+### license
+
 Shield: [![CC BY 4.0][cc-by-shield]][cc-by]
 
 This work is licensed under a
