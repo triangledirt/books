@@ -1,0 +1,621 @@
+<!DOCTYPE html>
+<html>
+    <head>
+        <title>Carbon and Bullshit</title>
+        <meta charset="utf-8" />
+        <meta name="viewport" content="width=device-width, initial-scale=1">
+        <meta name="bear-note-unique-identifier" content="62E28829-AE66-4283-B373-3448841780D8">
+        <meta name="created" content="2023-09-08T10:11:30-0400"/>
+        <meta name="modified" content="2023-09-08T10:11:30-0400"/>
+        <meta name="tags" content=""/>
+        <meta name="last device" content="iPhone"/>
+        
+    </head>
+        <style>
+             body {
+   --base-background-color: #ffffff;
+   --document-background-color: var(--base-background-color);
+ }
+
+.document-wrapper {
+  /* Constants used to transform theme values to CSS */
+  --transform-line-height-factor: 1.17;
+
+  /* From template */
+  --base-text-color: #444444;
+  --base-text-secondary-color: #888888;
+  --base-text-tertiary-color: #d9d9d9;
+  --base-background-color: #ffffff;
+  --base-background-secondary-color: #F3F5F7;
+  --base-background-tertiary-color: #E4E5E6;
+  --base-stroke-color: #d9d9d9;
+  --base-stroke-secondary-color: #d9d9d9;
+  --base-accent-color: #DD4C4F;
+  --base-highlight-color: #D3FFA4;
+
+  --document-background-color: var(--base-background-color);
+  --document-text-color: var(--base-text-color);
+  --document-text-secondary-color: var(--base-text-secondary-color);
+  --document-text-light-color: var(--base-text-secondary-color);
+  --document-accent-color: var(--base-accent-color);
+  --document-cursor-color: var(--base-accent-color);
+  --document-link-color: var(--base-accent-color);
+  --document-list-marker-color: var(--base-accent-color);
+  --document-marker-color: var(--base-text-tertiary-color);
+  --document-selection-color: var(--base-selection-color);
+  --document-selection-inactive-color: var(--base-background-tertiary-color);
+  --document-text-font: "AvenirNext-Regular";
+  --document-text-size: 15px;
+  --document-line-height-multiplier: calc(
+    1.5 * var(--transform-line-height-factor)
+  );
+
+  --document-headers-text-color: var(--base-text-color);
+  --document-headers-font: "AvenirNext-Medium";
+  --document-headers-modular-scale: 1.125;
+  --document-headers-line-height-multiplier: calc(
+    1.3 * var(--transform-line-height-factor)
+  );
+  --document-headers-add-top-bottom-padding: 1;
+  --document-headers-padding-top-multiplier: 0.5;
+  --document-headers-padding-bottom-multiplier: 0.3;
+
+  --document-code-text-color: var(--base-text-color);
+  --document-code-border-color: var(--base-text-tertiary-color);
+  --document-code-background-color: var(--base-background-secondary-color);
+  --document-code-font: "Menlo-Regular";
+  --document-code-text-size-multiplier: 0.91;
+
+  --document-code-syntax-highlight-comment: #65798c;
+  --document-code-syntax-highlight-constant: #0095c9;
+  --document-code-syntax-highlight-number: #0095c9;
+  --document-code-syntax-highlight-string: #d12f1b;
+  --document-code-syntax-highlight-entity: #4a838b;
+  --document-code-syntax-highlight-keyword: #ad3da4;
+  --document-code-syntax-highlight-function: #4a838b;
+  --document-code-syntax-highlight-variable: #4a838b;
+
+  --document-task-background-color: var(--base-background-color);
+  --document-task-border-color: var(--base-text-secondary-color);
+  --document-task-check-color: var(--base-text-color);
+
+  --document-tag-background-color: var(--base-background-tertiary-color);
+  --document-tag-text-color: var(--base-text-color);
+  --document-tag-marker-color: var(--base-text-secondary-color);
+
+  --document-highlighter-background-color: var(--base-highlight-color);
+  --document-highlighter-text-color: var(--base-text-color);
+
+  --document-file-fold-color: var(--base-background-tertiary-color);
+  --document-file-background-color: var(--base-background-secondary-color);
+
+  --document-separator-border-color: var(--base-stroke-secondary-color);
+
+  --document-table-border-color: var(--base-stroke-secondary-color);
+  --document-table-cell-background-color: var(--base-background-color);
+  --document-table-cell-alternate-background-color: var(
+    --base-background-secondary-color
+  );
+}
+
+.document-wrapper,body{background-color:var(--document-background-color)}.document-wrapper h1.setext,.document-wrapper h2.setext{border-bottom:calc(2 * var(--document-hairline-width)) solid var(--document-separator-border-color);padding-bottom:.6em}.document-wrapper blockquote blockquote blockquote blockquote blockquote::before,.document-wrapper blockquote blockquote blockquote::before,.document-wrapper blockquote::before{background-color:var(--document-list-marker-color)}.document-wrapper a:hover,.document-wrapper mark{text-decoration:inherit}.document-wrapper td[data-alignment="1"],.document-wrapper th{text-align:left}.document-wrapper :after,.document-wrapper :before,.document-wrapper a,.document-wrapper abbr,.document-wrapper acronym,.document-wrapper address,.document-wrapper applet,.document-wrapper article,.document-wrapper aside,.document-wrapper audio,.document-wrapper b,.document-wrapper big,.document-wrapper blockquote,.document-wrapper canvas,.document-wrapper caption,.document-wrapper center,.document-wrapper cite,.document-wrapper code,.document-wrapper dd,.document-wrapper del,.document-wrapper details,.document-wrapper dfn,.document-wrapper div,.document-wrapper dl,.document-wrapper dt,.document-wrapper em,.document-wrapper embed,.document-wrapper fieldset,.document-wrapper figcaption,.document-wrapper figure,.document-wrapper footer,.document-wrapper form,.document-wrapper h1,.document-wrapper h2,.document-wrapper h3,.document-wrapper h4,.document-wrapper h5,.document-wrapper h6,.document-wrapper header,.document-wrapper hgroup,.document-wrapper i,.document-wrapper iframe,.document-wrapper ins,.document-wrapper kbd,.document-wrapper label,.document-wrapper legend,.document-wrapper li,.document-wrapper mark,.document-wrapper menu,.document-wrapper nav,.document-wrapper object,.document-wrapper ol,.document-wrapper output,.document-wrapper p,.document-wrapper pre,.document-wrapper q,.document-wrapper ruby,.document-wrapper s,.document-wrapper samp,.document-wrapper section,.document-wrapper small,.document-wrapper span,.document-wrapper strike,.document-wrapper strong,.document-wrapper summary,.document-wrapper table,.document-wrapper tbody,.document-wrapper td,.document-wrapper tfoot,.document-wrapper th,.document-wrapper thead,.document-wrapper time,.document-wrapper tr,.document-wrapper tt,.document-wrapper u,.document-wrapper ul,.document-wrapper var,.document-wrapper video{all:unset}.document-wrapper{--document-inline-padding-top-bottom:0.25em;--document-inline-padding-left-right:0.25em;--header-1-font-size:2em;--header-2-font-size:1.6em;--header-3-font-size:1.27em;--document-hairline-width:calc(var(--document-text-size) / 15);box-sizing:border-box;color:var(--document-text-color);font-family:var(--document-text-font);font-size:var(--document-text-size);line-height:var(--document-line-height-multiplier);min-height:100%;max-width:48em;width:100%;tab-size:4;margin:0 auto;padding:0 2em}body{text-rendering:optimizeLegibility}.document-wrapper:focus-visible{outline:0}.document-wrapper .marker{color:var(--document-marker-color);display:none}.document-wrapper [data-direction="2"]{direction:rtl}.document-wrapper div.footnote,.document-wrapper div.link-definition,.document-wrapper p{display:block}.document-wrapper p.blank-line::before{content:" "}.document-wrapper h1,.document-wrapper h2,.document-wrapper h3,.document-wrapper h4,.document-wrapper h5,.document-wrapper h6{font-family:var(--document-headers-font);display:block;line-height:var(--document-headers-line-height-multiplier)}.document-wrapper h1{font-size:var(--header-1-font-size);padding-block-start:0.8em;padding-block-end:0.33em}.document-wrapper h2{font-size:var(--header-2-font-size);padding-block-start:0.66em;padding-block-end:0.27em}.document-wrapper h3{font-size:var(--header-3-font-size);padding-block-start:0.53em;padding-block-end:0.27em}.document-wrapper code,.document-wrapper pre{font-size:var(--document-code-text-size-multiplier);font-family:var(--document-code-font),monospace}.document-wrapper h4,.document-wrapper h5,.document-wrapper h6{padding-block-start:0.4em;padding-block-end:0.27em}.document-wrapper h1.setext{margin-bottom:.45em}.document-wrapper h2.setext{margin-bottom:.2em}.document-wrapper .fenced-code *,.document-wrapper .fenced-code-content .marker,.document-wrapper .fenced-code-content .space,.document-wrapper .hard-linebreak-marker,.document-wrapper .image .space,.document-wrapper .image-destination,.document-wrapper .image-label,.document-wrapper .image-title,.document-wrapper .indented-code .space,.document-wrapper .link .space,.document-wrapper .link-destination,.document-wrapper .link-label,.document-wrapper .link-title,.document-wrapper .replace .text,.document-wrapper .setext-heading-marker+.line-ending,.document-wrapper .yaml-marker+.line-ending,.document-wrapper li>p>.space:first-child,.document-wrapper tr.delimiter-row{display:none}.document-wrapper ol,.document-wrapper ul{display:block;padding-inline-start:2.13em}.document-wrapper li{display:list-item;color:var(--document-text-color)}.document-wrapper .color-marker,.document-wrapper .entity-marker,.document-wrapper .fenced-code-content,.document-wrapper .fenced-code-content *,.document-wrapper .footnote-separator,.document-wrapper .link-definition-separator,.document-wrapper code.code-inline,.document-wrapper li>p{display:inline}.document-wrapper ul{list-style-type:disc}.document-wrapper li li li li li li li ul,.document-wrapper li li li li li ul,.document-wrapper li li li ul,.document-wrapper li ul{list-style:circle}.document-wrapper li li li li li li ul,.document-wrapper li li li li ul,.document-wrapper li li ul{list-style:disc}.document-wrapper li::marker{color:var(--document-list-marker-color)}.document-wrapper ol{list-style-type:none;counter-reset:custom-list-item calc(var(--data-list-start,1) - 1)}.document-wrapper ol>li{counter-increment:custom-list-item;position:relative}.document-wrapper ol>li::before{content:counter(custom-list-item) ". ";color:var(--document-list-marker-color);position:absolute;transform:translate(calc(-100% - .33em),0)}.document-wrapper ol>li[data-big-number=true]{margin-inline-start:-2.05em}.document-wrapper ol>li[data-big-number=true]::before{position:static;padding-inline-end:0.25em}.document-wrapper ol>li[data-list-type="1"]:before{content:counter(custom-list-item) ") "}.document-wrapper [data-direction="2"] ol>li::before,.document-wrapper ol[data-direction="2"]>li::before{transform:translate(calc(100% + .33em),0)}.document-wrapper li[role=checkbox]{list-style:none;position:relative}.document-wrapper li[aria-checked=true]{color:var(--document-text-secondary-color)}.document-wrapper .todo-checkbox{display:inline-block;margin-left:-1.7em;margin-right:.5em}.document-wrapper .todo-checkbox svg{display:inline-block;margin-bottom:-.3em}.document-wrapper blockquote{display:block;padding-inline-start:2.13em;position:relative}.document-wrapper code,.document-wrapper mark{padding:var(--document-inline-padding-top-bottom) var(--document-inline-padding-left-right)}.document-wrapper blockquote::before{content:"";position:absolute;top:.2em;left:1em;width:.13em;height:calc(100% - .4em);border:var(--document-hairline-width) solid var(--document-list-marker-color);border-radius:.33em}.document-wrapper code,.document-wrapper pre.fenced-code,.document-wrapper pre.indented-code,.document-wrapper pre.yaml{color:var(--document-code-text-color);background-color:var(--document-code-background-color);border-radius:.25em}.document-wrapper [data-direction="2"] blockquote::before,.document-wrapper blockquote[data-direction="2"]::before{left:0;right:1em}.document-wrapper blockquote blockquote blockquote blockquote blockquote blockquote::before,.document-wrapper blockquote blockquote blockquote blockquote::before,.document-wrapper blockquote blockquote::before{background-color:transparent}.document-wrapper hr{display:block;margin-block-start:calc(var(--document-line-height-multiplier) * 0.5em);margin-block-end:calc(var(--document-line-height-multiplier) * -0.5em);border-top:var(--document-hairline-width) solid var(--document-separator-border-color)}.document-wrapper pre{display:block;white-space:pre-wrap}.document-wrapper pre.indented-code{padding-inline-start:2.13em}.document-wrapper pre.fenced-code,.document-wrapper pre.yaml{padding:0 .5em}.document-wrapper .fenced-code::before{content:"\200B"}.document-wrapper code{font-weight:400;font-style:normal;display:block}.document-wrapper mark,.document-wrapper mark code{color:var(--document-text-color);background-color:var(--document-highlighter-background-color)}.document-wrapper em,.document-wrapper i{font-family:AvenirNext-Italic}.document-wrapper b,.document-wrapper strong,.document-wrapper th{font-family:AvenirNext-Bold}.document-wrapper mark{unicode-bidi:embed;border-radius:.25em}.document-wrapper u{text-decoration:underline;text-decoration-color:var(--document-accent-color);unicode-bidi:embed}.document-wrapper s,.document-wrapper strike{text-decoration:line-through}.document-wrapper a{color:var(--document-link-color);unicode-bidi:embed;cursor:pointer}.document-wrapper .wiki-separator-marker{display:inline;color:inherit}.document-wrapper .link-definition-title{color:var(--document-text-light-color)}.document-wrapper .footnote-ref{font-size:.9em;vertical-align:super}.document-wrapper span.entity{direction:ltr;unicode-bidi:embed;color:var(--document-code-syntax-highlight-entity)}.document-wrapper span.escape{unicode-bidi:embed}.document-wrapper .color{font-family:var(--document-code-font),monospace;font-size:var(--document-code-text-size-multiplier);padding-inline-start:1.2em;position:relative;direction:ltr;unicode-bidi:embed}.document-wrapper .color::before{content:"";position:absolute;width:.9em;height:.9em;left:0;bottom:0;transform:translateY(-15%);border:var(--document-hairline-width) solid rgb(0,0,0,.3);border-radius:.9em;background-color:var(--data-color)}.document-wrapper .hashtag{color:var(--document-tag-text-color);background-color:var(--document-tag-background-color);border-radius:1em;padding:calc(var(--document-inline-padding-top-bottom) - 2 * var(--document-hairline-width)) calc(var(--document-inline-padding-left-right) + .3em);unicode-bidi:embed}.document-wrapper .hashtag>.marker{display:inline;color:var(--document-tag-marker-color);padding:0}.document-wrapper table{display:block;max-width:fit-content;overflow-x:auto;border-collapse:separate;border-spacing:0;border:var(--document-hairline-width) solid var(--document-table-border-color);border-radius:.33em;margin-bottom:calc(var(--document-line-height-multiplier) * 1em)}.document-wrapper table[data-direction="2"]{margin-left:auto;direction:ltr}.document-wrapper tr{display:table-row;background-color:var(--document-table-cell-background-color)}.document-wrapper tr.header-row,.document-wrapper tr:nth-child(odd){background-color:var(--document-table-cell-alternate-background-color)}.document-wrapper td,.document-wrapper th{box-sizing:border-box;display:table-cell;padding:.37em .75em;min-width:5em;border-right:var(--document-hairline-width) solid var(--document-table-border-color)}.document-wrapper td:last-of-type,.document-wrapper th:last-of-type{border:none}.document-wrapper table[data-direction="2"] td{margin-left:auto}.document-wrapper td[data-alignment="2"]{text-align:right}.document-wrapper td[data-alignment="3"]{text-align:center}.document-wrapper .code_comment{color:var(--document-code-syntax-highlight-comment)}.document-wrapper .code_constant{color:var(--document-code-syntax-highlight-constant)}.document-wrapper .code_number{color:var(--document-code-syntax-highlight-number)}.document-wrapper .code_string{color:var(--document-code-syntax-highlight-string)}.document-wrapper .code_entity{color:var(--document-code-syntax-highlight-entity)}.document-wrapper .code_keyword{color:var(--document-code-syntax-highlight-keyword)}.document-wrapper .code_function{color:var(--document-code-syntax-highlight-function)}.document-wrapper .code_variable{color:var(--document-code-syntax-highlight-variable)}.document-wrapper img{max-width:100%}.document-wrapper .pdf_preview{display:inline-block;width:100%;height:500px;background-color:#fff;overflow:hidden;padding:0;margin:0;position:relative;border-radius:4px}.document-wrapper .arrow svg #body,.document-wrapper .arrow svg #head{fill:var(--base-text-color)}.document-wrapper .todo-checkbox svg #body{stroke:var(--document-task-border-color)}.document-wrapper .todo-checkbox svg #check{fill:var(--document-task-check-color)}.document-wrapper .todo-checkbox.todo-checked svg #body{opacity:.35}.document-wrapper .todo-checkbox.todo-checked svg #check{opacity:.4}
+
+        </style>
+    <body>
+        <div class="document-wrapper">
+            <h1 id='Carbon and Bullshit'>Carbon and Bullshit</h1><br>
+<p><b>CARBON</b> In one second a bullet from a gun travels three thousand feet.</p><br>
+<p><b>BULLSHIT</b> In one second a particle of light travels one hundred and eighty-six thousand miles.</p><br>
+<p><b>CARBON</b> According to the Big Bang Theory our universe expanded from something smaller than a piece of dust to approximately its present size in a tiny fraction of a second.</p><br>
+<p><b>BULLSHIT</b> That first second is always the longest one.</p><br>
+<p><b>CARBON</b> I look down at my watch, and for the first three or four seconds, nothing changes. The seconds stay the same. Then they finally move, one, two, and after that first one they’re going the right speed. But the first one, which was actually probably shorter since you looked down somewhere in the middle of it, takes forever. It’s like your watch hasn’t realized you’re looking at it and it takes it a while to start doing its job again. Julian says that by looking at a clock you actually stop time. Time. Noun. System of distinguishing events. A dimension enabling two identical events occurring in the same point in space to be distinguished, measured by the interval between the events.</p><br>
+<p><b>BULLSHIT</b> You keep looking at your watch. are you—</p><br>
+<p><b>CARBON</b> I’m sorry, I’m—</p><br>
+<p><b>BULLSHIT</b> No, it’s okay, I just wondered if you were—</p><br>
+<p><b>CARBON</b> No, No—</p><br>
+<p><b>BULLSHIT</b> Waiting for something to happen, or—</p><br>
+<p><b>CARBON</b> I just do that—</p><br>
+<p><b>BULLSHIT</b> If you have somewhere else you have to be—</p><br>
+<p><b>CARBON</b> No. Time. Noun. Period with limits. A limited period during which an action, process, or condition exists or takes place. Elapsed time.</p><br>
+<p><b>BULLSHIT</b> If I drink too much espresso in too short a time I get very existential. Bad existential. I can drink coffee okay but after two or three double espressos I always get very existential in a completely scary way. Like an existential dread sort of way. I start thinking about how I’m alive, and how that is all there is for me, and how it’s going to eventually stop, and how there won’t be me anymore, and even though when I’m not jacked up on espresso that seems like a good thing, somewhat good, at least acceptable, after two or three double espressos the thought that I will someday cease to exist is..really..very..bad.</p><br>
+<p><b>CARBON</b> Double espresso.</p><br>
+<p><b>BULLSHIT</b> Thank you.</p><br>
+<p><b>CARBON</b> Okay so like we’re sitting here and we’re eating Big Macs and fish sandwiches, and we’re playing Disney trivia, and we’re having fun. You and I are great friends. And we can look at it that way. I can say to myself, you and I have a great relationship. We have great connection, incredible rapport, we experience joy and enlightenment every time we get together. We can say it that way. We can say, I’m sitting here across from you and I feel a deep degree of support and understanding. I feel loved. Now that’s very nice, and it makes me feel good, but it’s also very high level and abstract. If I think about my relationship with you I can say, I love her, I like her, we get along well, we’re a good match, we click. I can talk about my experience with you and I can say, it was a very romantic evening. We had a good time. We made love. But what’s really going on here? Are you and I sitting here having a deep, spiritual moment? You can call it that if you want, but what does it really mean? What does a deep, spiritual moment really look like? Well, I would say that we are having a spiritual moment right now. Would you agree with that?..Absolutely. And what are we doing that makes it so? Well, we’re sitting upright, on soft seats, in the air conditioning rather than outside. We’re eating good food—no, what is good? We’re eating familiar food, food that we’ve had exact copies of a thousand times before. It is food that we know well. We are breathing comfortably, matching each other’s posture and tonality. Fucking..Anthony Robbins, right? We are talking. We are involuntarily digesting food. But digesting is too general. Refinement. Our stomachs and intestines and pancreas are secreting bile and other acidic juices, acids, and we’re breaking down that Big Mac and this fish sandwich into the basic elements from which they are formed. We are turning this pre-processed, assembly-line soybean burger back into the carbon and bullshit that it came from. That’s all that’s going on. That’s all that’s happening here. We may interpret it as a spiritual moment. We may give it deep meaning. But another way to look at it is just as a complex array of organic processes. That’s all it is. And that’s no reason to get upset. That’s no reason to get depressed. The only way I would get depressed is if I walked in here expecting to find a spiritual experience, instead of digestion, or if I decided not to interpret this digestion as a heavenly thing. I can do it either way. I can see this moment as an abstract metaphysical phenomenon, or I can leave it like it is, like carbon and bullshit, and that..is an abstract metaphysics all its own.</p><br>
+<p><b>BULLSHIT</b> I’m just a Big Mac.</p><br>
+<p><b>CARBON</b> And massive amounts of caffeine.</p><br>
+<p><b>BULLSHIT</b> What are you?</p><br>
+<p><b>CARBON</b> Fish mostly.</p><br>
+<p><b>BULLSHIT</b> Massive amounts of caffeine.</p><br>
+<p><b>CARBON</b> Massive.</p><br>
+<p><b>BULLSHIT</b> Eight fifty-seven am. Carbon and bullshit eats a sandwich.</p><br>
+<h2 id='2'>2</h2><br>
+<p><b>BULLSHIT</b> Time. Noun. Method for measuring intervals. A system for measuring intervals of time. Sidereal time.</p><br>
+<p><b>CARBON</b> Central daylight time.</p><br>
+<p><b>BULLSHIT</b> I dream of the moon. I dream of tides.</p><br>
+<p><b>CARBON</b> I dream of music, of singing and drums and bagpipes and a night at the orchestra.</p><br>
+<p><b>BULLSHIT</b> Orchestra. Noun. Large Group of classical musicians. A large group of musicians playing classical music, consisting of sections of string, woodwind, brass, and percussion players, and directed by a conductor.</p><br>
+<p><b>CARBON</b> Orchestra. People who get together and play instruments. And what is an instrument? It is a piece of wood or metal or catgut that has moving parts that make sounds. And what is sound? It is vibration. That’s all it is. It’s little tiny particles of gas moving back and forth.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Tempo of music. The relative speed at which a musical composition is played.</p><br>
+<p><b>CARBON</b> Okay. Theoretical. Let’s say you have a box of rice, and you open it up and throw in some maggot eggs. You close the box, and wait however long. At some point, when you open up that box, there’s not going to be any rice left. You’re going to have a swimming mass of maggots, some maggot shit, and no rice. So what is life? What is a maggot’s life, essentially? A maggot is the magic trick that turns a box of rice, or whatever, into maggots and maggot shit and then, eventually, dead, decomposing maggots. See what I’m saying? A maggot is not a thing. It’s not a creature or a being. It’s the name we have for the transformation that took place inside the box. Everywhere in the world situations like boxes full of rice are turning into different situations, like boxes full of whatever is left when maggots decompose, and then whatever’s left when whatever that is decomposes, or is assimilated into another process of life. Not that life isn’t life, that life isn’t living. It is. Everything is always in the process of changing. Some categories of change are called movement. Some are called decay. Some are called life.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Time as a causative force. Time conceived as a force capable of acting on people and objects. time’s ravages.</p><br>
+<p><b>CARBON</b> Life is a process of getting from point a to point b.</p><br>
+<p><b>BULLSHIT</b> Life is a box of maggots.</p><br>
+<p><b>CARBON</b> Life is a magic trick.</p><br>
+<p><b>BULLSHIT</b> The trick that turns a bunny into doves.</p><br>
+<p><b>CARBON</b> The trick that turns Big Macs and oxygen into dust and books and buildings.</p><br>
+<p><b>BULLSHIT</b> That spawns similar processes called offspring.</p><br>
+<p><b>CARBON</b> Imagine if you could visually trace the historical path of all the atoms that were part of your body when you were born. Imagine that each one of them leaves a red trace line in space. These atoms of your infant body would have come from the air, from the ocean, from other planets.</p><br>
+<p><b>BULLSHIT</b> They would have been part of other people who lived before.</p><br>
+<p><b>CARBON</b> There would be a cord of trace lines spiraling into your mother’s mouth from every part of the universe. A glowing ball of red inside her body, forming you. After you were born, even before, some of your atoms would constantly be leaving what we call you, to float away in the air and get stuck on a couch and then rub off on another person.</p><br>
+<p><b>BULLSHIT</b> We’re constantly trading matter. We’re made of the same stuff.</p><br>
+<p><b>CARBON</b> The very same.</p><br>
+<p><b>BULLSHIT</b> You just organize it differently than me.</p><br>
+<p><b>CARBON</b> And in a recognizable way so that you always know who I am.</p><br>
+<p><b>BULLSHIT</b> With that model it doesn’t make sense to consider anything in isolation. It would be meaningless to think about me outside the context of me and you.</p><br>
+<p><b>CARBON</b> Or you outside the context of your Big Mac.</p><br>
+<p><b>BULLSHIT</b> And massive amounts of caffeine.</p><br>
+<p><b>CARBON</b> Or of any of us outside the context of all the items that surround us, compose us.</p><br>
+<p><b>BULLSHIT</b> Entertain us.</p><br>
+<p><b>CARBON</b> Distract us.</p><br>
+<p><b>BULLSHIT</b> Annoy us. Time. Noun. Minute of hour. The minute or hour as indicated by a clock. what time is it?</p><br>
+<p><b>CARBON</b> It’s Twinkie time.</p><br>
+<p><b>BULLSHIT</b> What?</p><br>
+<p><b>CARBON</b> I don’t think you understood what I said. It’s Twinkie time.</p><br>
+<p><b>BULLSHIT</b> Oh, like it’s Little Debbie time?</p><br>
+<p><b>CARBON</b> Yeah, like it’s Hostess fruitcake time.</p><br>
+<p><b>BULLSHIT</b> Pez time.</p><br>
+<p><b>CARBON</b> Bubble Tape time.</p><br>
+<p><b>BULLSHIT</b> Nerds time.</p><br>
+<p><b>CARBON</b> Fruit Roll Up time.</p><br>
+<p><b>BULLSHIT</b> Sour Patch Kids time.</p><br>
+<p><b>CARBON</b> Gummy Worm time.</p><br>
+<p><b>BULLSHIT</b> Now and Later time.</p><br>
+<p><b>CARBON</b> Mike and Ike time.</p><br>
+<p><b>BULLSHIT</b> Good and Plenty time.</p><br>
+<p><b>CARBON</b> Eww. I hate Good and Plentys. They’re fucking disgusting.</p><br>
+<p><b>BULLSHIT</b> I’m gonna get some more coffee.</p><br>
+<p><b>CARBON</b> Coffee. Noun. Strong caffeine-rich drink. A drink made from ground or processed coffee beans that contains caffeine and has a mildly stimulating effect.</p><br>
+<p><b>BULLSHIT</b> Coffee may be drunk hot, often with cream or milk and sweetened with sugar, or iced.</p><br>
+<p><b>CARBON</b> Theoretical. I saw this on the Internet. You walk into a gallery and all around you are pedestals with blenders on them, and inside the blenders are goldfish swimming around oblivious to their situation. The blenders are plugged in. If you want, you can participate in the exhibit by going up to one of the blenders and pressing the button, throwing it into blend, or whip, or puree, or liquefy, or whatever.</p><br>
+<p><b>BULLSHIT</b> I wouldn’t do it.. Would you?</p><br>
+<p><b>CARBON</b> Absolutely.</p><br>
+<p><b>BULLSHIT</b> You would?</p><br>
+<p><b>CARBON</b> Of course. Why not? Ninety percent of the work has already been done by whoever set up the exhibit. Pressing the button or not pressing the button is nothing.</p><br>
+<p><b>BULLSHIT</b> Except that one way the fish die and the other way they don’t.</p><br>
+<p><b>CARBON</b> True, but so much of the work has already gone into setting up the fish’s deaths in a way that the execution can happen in an instant, by the hand of someone who five minutes before they press the button wasn’t thinking about doing anything of the sort. They’re having a normal day in their normal universe of events and then suddenly they are faced with a situation they would never have thought of themselves, and if they did, wouldn’t have gone to the trouble to actually create, and now, all they have to do, if they want to, is press puree and walk out of the gallery back into their normal life. They don’t have to think about it. It’s the fucking artist who put that shit together who spends the time thinking about it. Premeditating the rapid potential of fish death, implicating gallery goers in fish murder. I don’t know.</p><br>
+<p><b>BULLSHIT</b> To me, it’s whoever presses the button. It doesn’t matter how much planning the artist slash criminal mastermind puts into something, it’s the people who carry out the plans who are responsible for it happening. The person who pulls the trigger. The person who crashes the plane. The person who pushes puree.</p><br>
+<p><b>CARBON</b> I see your point, and I agree with you.</p><br>
+<p><b>BULLSHIT</b> And I agree with yours as well.</p><br>
+<p><b>CARBON</b> Time. Noun. Moment something occurs. A moment or period at which something takes place. At the time of her ninetieth birthday.</p><br>
+<p><b>BULLSHIT</b> Or, as in, the time of death.</p><br>
+<p><b>CARBON</b> Time. Noun. Suitable moment. A moment or period chosen as appropriate for something to be done or to take place. The times for the games will be announced.</p><br>
+<p><b>BULLSHIT</b> Or..as in, now’s about the time I’d like to see clear water and a fish in a blender turned into murky water and essence of fish.</p><br>
+<p><b>CARBON</b> Time. Noun. Unallocated period. A period that is not allocated for a particular purpose. I had time on my hands.</p><br>
+<p><b>BULLSHIT</b> So I set up an art exhibit featuring goldfish in blenders.</p><br>
+<p><b>CARBON</b> Time. Noun. Period needed. A period required, allocated, or taken to complete an activity. How much time?</p><br>
+<p><b>BULLSHIT</b> Does it take for a goldfish to die in a blender once someone has pressed puree?</p><br>
+<p><b>CARBON</b> About one second. Time. Noun. Period with a particular quality. A period, activity, or occasion that has a particular quality or characteristic. Often used in the plural. They’ve been through some rough times. We had an interesting time there. And, of course..it was the best of times, it was the worst of times.</p><br>
+<p><b>BULLSHIT</b> You are one hundred percent bullshit and zero percent carbon.</p><br>
+<p><b>CARBON</b> You are a toad beyond repair.</p><br>
+<p><b>BULLSHIT</b> You are the acute angle of a hanger on the discount rack at Saks Fifth Avenue.</p><br>
+<p><b>CARBON</b> You are the glob of toothpaste between my teeth, hanging like taffy. Gluey cotton—</p><br>
+<p><b>BULLSHIT</b> Cotton hair, gamma rays, deflector shields.</p><br>
+<p><b>CARBON</b> You are the Olympic torch submerged a thousand feet below the surface of the ocean, sealed in a glass bubble that is running out of air.</p><br>
+<p><b>BULLSHIT</b> You implode into the shape of a flower, brilliant shards of an orchid.</p><br>
+<p><b>CARBON</b> You are that same orchid, in a brittle vase in the flatness of the Mojave desert.</p><br>
+<p><b>BULLSHIT</b> You are a warplane, screaming across that desert, bracing to explode.</p><br>
+<p><b>CARBON</b> Time. Noun. Appointed moment. A designated or customary moment or period at which something is done or takes place. It’s time to wake up. It’s time to wake up. Love? Love? Oh my god.. Hello?</p><br>
+<p><b>BULLSHIT</b> What’s your emergency?</p><br>
+<h2 id='3'>3</h2><br>
+<p><b>BULLSHIT</b> Coming through the tunnel. White rays shining in around the edges. Bracing myself for the plunge. Coming out the end of a waterslide. Ahhhhhh! I can’t go I’m not ready I have one more thing I have to do before the end. This isn’t how it was supposed to be and I want a do-over. But you don’t get any do-overs in life and you don’t get to save your game and you don’t get any undos and half the time you don’t even get to say what you really feel. Now you’re my baby and I’m self-pregnant with a second, you’re my baby lovely baby lovely lovely lovely baby boy you’re my one and only baby one and only yes you are you are so lovely and I’m going to protect you from everything and no one’s ever going to hurt you because I won’t let them and you’re never going to have to go through what I went through back there because no one should ever have to go through that. No they shouldn’t no one should no one should ever have to go through what I went through back there. You’re my baby. You’re my baby, baby boy.</p><br>
+<p><b>CARBON</b> Eight fifty-seven am. Carbon and bullshit has a baby. And you always said your mother was such a bitch.</p><br>
+<p><b>BULLSHIT</b> Bitch. Noun. Offensive term. A highly offensive term that insults a woman’s temperament.</p><br>
+<h2 id='4'>4</h2><br>
+<p><b>CARBON</b> Now I’m writing your mother a letter. And why am I writing a letter to your mother when it was you I was in love with, not your mother, not your sisters, not your mom. Therapy would recommend that I write a letter to you even though I’d have nowhere to send it. But whenever I do that it turns out to be a letter you’re writing me, telling me I’m stuck in fourth-dimensional pain, that I’m blind from where I am, that where you are it’s bright and you can feel no pain, that you are beyond what I for some reason still feel the need to struggle with and that I could, even in this world, if I wanted to, get past that struggle, that if I have any task in my lifetime it is to completely dismantle my concept of problem. Problem. What is it that makes all these things a problem for me? What is its architecture, what is the construction of that judgment? Can I not escape that vexing of self, can I not learn to live post-dichotomy of this or that into the wider space just beyond, of disregard, of replacing, redirecting my focus to a smearing together of the two, whichever two, into a nothingness of the before, beyond Nietzsche’s good and evil, beyond the having or not having of sexual pursuits, beyond pursuit, beyond the consciousnesses of having or not having themselves. You tell me that, in these letters. You tell me that and you tell me that I am foolish for not continuing to feel ecstasy, that even death is not a good enough reason to stop. But you aren’t here and you don’t know how it feels to be here, and you tell me that, too, that what I see is shrouded, looking through a veil, that you can see it clearly as it is, that in your light you can wrap yourself completely around my darkness, but from where I am I don’t even know what light is, I am so so shadowed by dark.</p><br>
+<h2 id='5'>5</h2><br>
+<p><b>CARBON</b> Bar on a Monday night. The Trolley Stop. This town is dead, I’m finally coming to realize that. Nobody’s out. Half the bars aren’t even open. The Asylum’s not open. Sloopy’s ain’t open. Canal Street is dark. Everybody’s at home and I’m sitting in the trolley stop drinking top shelf. Teaching the bartender how to make drinks. The sign in front of me reads, You Must Be Twenty One. Well, I’m twenty one, and I’m a genius, and I’m lonely at the moment. I’ve done nothing productive at work for at least three weeks. Just bullshitting and day trading. Social life is lacking, and I’m trying to do something about that, but nobody else is out except other working men. I’d like to gain some hang out friends, have some casual sex, you know. I need to involve myself in some extra curriculars. People at work think I’m a little depressed, and they are concerned. They ask me about it, try to discern how I’m doing, invite me to their social gatherings, and generally care. I appreciate it, and I try to pretend that I’m okay, try to manipulate my voice and mannerisms into happiness. But it doesn’t work, they can tell anyway, sometimes can tell more than I can. I am thinking about my ex-girlfriend’s roommate. And the last waitress who gave me her phone number with the bill. I might call that number now. Or I might not. As Julian sings, she might be pretty but I wouldn’t fuck her. I’m on my second purple rain now, sixty percent done, maybe seventy percent. In about twenty minutes. I may stop after this and drive home in an hour or one half an hour. Starting to feel the drinks. Starting to have the motion thing. Thinking about buying a cigarette. Pack, rather. Nice construction. Thinking better of it, thinking about cancer. Thinking about alcoholism, drinking now once or twice a week. Definitely feeling the drinks now, solidly feeling the motion thing. Sipping my ice for traces of alcohol. Thinking of Leaving Las Vegas, Nicholas Cage, having trouble with standing. Feeling good. That fucking waitress. As far as I can tell she stood me up on our would-be date last week. I want to call her but my pride prevents me. I want to fuck her but, again, pride prevents me.</p><br>
+<p><b>BULLSHIT</b> Time.</p><br>
+<p><b>CARBON</b> Noun.</p><br>
+<p><b>BULLSHIT</b> Closing time. The time at which a bar or pub is legally required to close.</p><br>
+<h2 id='6'>6</h2><br>
+<p><b>CARBON</b> Tonight I throw a Triscuit in the sink with dirty dishes. Talk with her for an hour and a half on the telephone about exes. Watch Clueless, drinking one fourth of a bottle of Absolut Mandarin by myself. With sweet and sour mix. Write a note that I’ve been planning on for days. Drive drunk to her place in the middle of the night, park half a block away, walk to her porch and deliver the note to their mailbox. The door was open, lights on upstairs and down. Wonder if she’s awake, if she’s there, if she’s alone, if she’s alive. Open the mailbox. Put it in. The mailbox lid makes a sound. I wonder if it’s audible from within. I drop the letter. Walk back to my car, not turning around to see if my sounds were heard. Drive home past two cops investigating something infinitely more interesting to them than me, come home, write, collapse into sleep? Tonight on the phone I said, enjoy the universe from your point of view. That was my closing to the conversation. I certainly will.</p><br>
+<h2 id='7'>7</h2><br>
+<p><b>CARBON</b> I dream of drinking uncontrollably.</p><br>
+<h2 id='8'>8</h2><br>
+<p><b>BULLSHIT</b> Hello sweetie. I am filling the day with your beautiful radiance. May this moment be full of peace. Awww. Yeah. I remember when I wrote that for you.</p><br>
+<p><b>CARBON</b> Stop it. I’m dreaming.</p><br>
+<p><b>BULLSHIT</b> No you’re not.</p><br>
+<p><b>CARBON</b> I dream you’re just beyond my reach, and I can never get you back.</p><br>
+<p><b>BULLSHIT</b> I dream I’m lost.</p><br>
+<p><b>CARBON</b> You know what I love? I painted all day today and when I close my eyes I can see swirls of patterns..</p><br>
+<p><b>BULLSHIT</b> Oh, that’s wonderful.</p><br>
+<p><b>CARBON</b> It was so much fun..I just played..and art should be like that. It should only be play like a little kid plays.</p><br>
+<p><b>BULLSHIT</b> Yes.</p><br>
+<p><b>CARBON</b> Yes, and a little kid plays..not expecting to be observed..a little kid is playing to their own, in their own world..</p><br>
+<p><b>BULLSHIT</b> Not for a grade, or to see what people think.</p><br>
+<p><b>CARBON</b> For their own..enjoyment.</p><br>
+<p><b>BULLSHIT</b> I dream of toes.</p><br>
+<p><b>CARBON</b> I dream of fingers.</p><br>
+<p><b>BULLSHIT</b> I dream of lust.</p><br>
+<p><b>CARBON</b> I dream I cheat.</p><br>
+<p><b>BULLSHIT</b> I dream I laugh.</p><br>
+<p><b>CARBON</b> I dream I win.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Certain interval. A limited but unspecified period. We stayed for a time. You are pure form, Byron, Homer, Gauss.</p><br>
+<p><b>CARBON</b> You are Turing.</p><br>
+<p><b>BULLSHIT</b> You are Hughes.</p><br>
+<p><b>CARBON</b> You are jazz.</p><br>
+<p><b>BULLSHIT</b> You break yourself again and again and again.</p><br>
+<p><b>CARBON</b> You tumble over and over the hill, Jack and Jill making love in the fairytale.</p><br>
+<p><b>BULLSHIT</b> I dream of the sea.</p><br>
+<p><b>CARBON</b> I dream of a desert at night.</p><br>
+<p><b>BULLSHIT</b> I dream of snakes between my toes.</p><br>
+<p><b>CARBON</b> I dream rivers.</p><br>
+<p><b>BULLSHIT</b> I dream blood.</p><br>
+<p><b>CARBON</b> I dream of silence rolling like waves.</p><br>
+<p><b>BULLSHIT</b> I dream of salt.</p><br>
+<p><b>CARBON</b> I dream the deep.</p><br>
+<p><b>BULLSHIT</b> I dream the sky.</p><br>
+<p><b>CARBON</b> I dream I float.</p><br>
+<p><b>BULLSHIT</b> I dream I die.</p><br>
+<p><b>CARBON</b> Time. Noun. Anticipated moment. A moment in which some important event such as a birth or death is expected to happen. She knew her time had come.</p><br>
+<h2 id='9'>9</h2><br>
+<p><b>BULLSHIT</b> I dream losing my virginity, losing my mind to passion enflaming, engulfing, enraging me to possess, enabling me to control you, comfort you, console you, eat you up, digest you, expel you, and bring you in again.</p><br>
+<h2 id='10'>10</h2><br>
+<p><b>CARBON</b> Time. Verb. Schedule something. To plan the moment for something, especially in order to receive the best result or effect. To time an entrance.</p><br>
+<p><b>BULLSHIT</b> My song song song song song oh oh sing sing sing ohhhhhhhhhoahhh this voice is mine this voice is mine this voice is mine. You can sing anything you want with this voice.</p><br>
+<p><b>CARBON</b> Oh, your singing.</p><br>
+<p><b>BULLSHIT</b> Soon, I promise, soon I wont shy away, dear oh, soon, I want you, soon, I want to, soon, whatever you say..even now, when you’re close and we touch, and you’re kissing my brow, I don’t mind it too much, but you have to admit I’m endearing, I help keep things humming, I’m not domineering, what’s one small shortcoming? Soon, soon, soon..soon..soon..</p><br>
+<p><b>CARBON</b> Soon.</p><br>
+<p><b>BULLSHIT</b> Soon. Ooh I want more, ooh I love it. I love it. Oh, yeah yeah yeah yeah.</p><br>
+<p><b>CARBON</b> I would never tire of you.</p><br>
+<p><b>BULLSHIT</b> Oh, never. Same with you, darling, same with you. Loo loo loo. Look at me, I’m as helpless as a kitten up a tree, and I feel like I’m clinging to a cloud, I get misty the moment you’re near. You can say that you’re leading me on, but that’s just what I want you to do..don’t you notice how hopelessly I’m lost..I’m too much in love..</p><br>
+<p><b>CARBON</b> I could fly with you.</p><br>
+<p><b>BULLSHIT</b> Mmm hmmm..And we remind each other, we do. I can’t say love enough.</p><br>
+<p><b>CARBON</b> I know.</p><br>
+<p><b>BULLSHIT</b> We need to think of a new word for love.</p><br>
+<p><b>CARBON</b> There is no word to express love.</p><br>
+<p><b>BULLSHIT</b> No, no, no.</p><br>
+<p><b>CARBON</b> Wow.</p><br>
+<p><b>BULLSHIT</b> Wow.</p><br>
+<p><b>CARBON</b> Exactly.</p><br>
+<h2 id='11'>11</h2><br>
+<p><b>BULLSHIT</b> Time. Noun. Historical period. A period in history, often characterized by a particular event or person. Often used in the plural. In Shakespeare’s time.</p><br>
+<p><b>CARBON</b> Ancient times.</p><br>
+<p><b>BULLSHIT</b> I dream of then.</p><br>
+<p><b>CARBON</b> I dream of how.</p><br>
+<p><b>BULLSHIT</b> I dream of when.</p><br>
+<p><b>CARBON</b> I dream of treasure.</p><br>
+<p><b>BULLSHIT</b> I dream of trouble.</p><br>
+<p><b>CARBON</b> I dream of tyranny.</p><br>
+<p><b>BULLSHIT</b> I dream of revolution.</p><br>
+<p><b>CARBON</b> I dream of empire.</p><br>
+<p><b>BULLSHIT</b> I dream of dust.</p><br>
+<p><b>CARBON</b> I dream of space.</p><br>
+<p><b>BULLSHIT</b> I dream the stars.</p><br>
+<p><b>CARBON</b> Eight fifty-seven a.m. Carbon and bullshit looks at the stars.</p><br>
+<p><b>BULLSHIT</b> Remember spending like four hours in the bathroom and we were painting our faces for that party and the party turned out to be really stupid but we had so much fun getting ready painting and..we must have painted our faces like eight times and that was so much fun I have so much fun when I’m with you you know that? I do, I do.</p><br>
+<h2 id='12'>12</h2><br>
+<p><b>BULLSHIT</b> Ommmmmm..</p><br>
+<p><b>CARBON</b> Ommmmmm..</p><br>
+<p><b>BULLSHIT</b> All space is here.</p><br>
+<p><b>CARBON</b> All time is now.</p><br>
+<p><b>BULLSHIT</b> Here..now.</p><br>
+<p><b>CARBON</b> Here now.. Time. Noun. Somebody’s lifetime. A period during which somebody is alive, especially the most active or productive period in somebody’s life. She’d been a well-known athlete in her time.</p><br>
+<p><b>BULLSHIT</b> We didn’t worry about such trifles in my time.. You are my captor. You lavish me with incense. You cradle me and kiss me. I am your slave.</p><br>
+<p><b>CARBON</b> You are my twin. You mirror me. You play with me.</p><br>
+<p><b>BULLSHIT</b> You turn me over and over.</p><br>
+<p><b>CARBON</b> Rolling.</p><br>
+<p><b>BULLSHIT</b> Over and over and over again and again and again and again and again and again and again..</p><br>
+<p><b>CARBON</b> Rolling over and over and over and over..</p><br>
+<p><b>BULLSHIT</b> He. Sweetly. Dances. To. Smoky. Red. Blushing. As. We. Nourish. The. Silhouette.</p><br>
+<p><b>CARBON</b> That day. That day never happened.</p><br>
+<p><b>BULLSHIT</b> Then where am I?</p><br>
+<p><b>CARBON</b> You’re still here somewhere. You’re hiding.</p><br>
+<p><b>BULLSHIT</b> I would miss you too much to keep hiding this long.</p><br>
+<p><b>CARBON</b> You might not miss me after a while. You might get used to being gone.</p><br>
+<p><b>BULLSHIT</b> Are you used to me being gone?</p><br>
+<p><b>CARBON</b> I don’t think about you as much as I used to.</p><br>
+<p><b>BULLSHIT</b> But you’ll never get used to me being gone.</p><br>
+<p><b>CARBON</b> In a sense, I am used to it. I don’t expect you to show up all of a sudden.</p><br>
+<p><b>BULLSHIT</b> Do you still wish I would?</p><br>
+<p><b>CARBON</b> I have lists of things I would give up for that to happen. But no matter how long these lists get, there’s no one to bargain with. No one can grant my trade.</p><br>
+<p><b>BULLSHIT</b> Do you still dream about me?</p><br>
+<p><b>CARBON</b> I still do.</p><br>
+<p><b>BULLSHIT</b> I remember how we used to walk around the neighborhood and we would only go three streets in each direction because if we stayed in that little area we could pretend that we were in England. We would wear clothes we thought looked British and talk in an English accent the whole time and we’d be cold on our walk and we’d snuggle together and hold each other like we were colder than we actually were and afterwards we’d go back to your place and we’d have tea. Remember?</p><br>
+<p><b>CARBON</b> Time. Noun.</p><br>
+<p><b>BULLSHIT</b> Season. A period during which particular climactic conditions prevail.</p><br>
+<p><b>CARBON</b> The rainy times of the year.</p><br>
+<p><b>BULLSHIT</b> The English times of the year.</p><br>
+<h2 id='13'>13</h2><br>
+<p><b>CARBON</b> This morning I woke up feeling so bad because I realized it had been over two weeks since I moved out of the old apartment and I still hadn’t called to give you my new number.</p><br>
+<h2 id='14'>14</h2><br>
+<p><b>CARBON</b> You are the monkey.</p><br>
+<p><b>BULLSHIT</b> You are the hawk.</p><br>
+<p><b>CARBON</b> You are brevity.</p><br>
+<p><b>BULLSHIT</b> You, elaboration.</p><br>
+<p><b>CARBON</b> You are lyric.</p><br>
+<p><b>BULLSHIT</b> You are song.. Where are you?</p><br>
+<p><b>CARBON</b> I’m in the hospital. I’m in room fourteen-oh-six. and you’re there, but you’re sleeping. And we’re playing music for you. And you’re not making any sign that you hear it but you hear it, and you’re singing along in your head. None of us are singing, though. We’re whispering to each other and taking turns going up to you to lay our heads down next to yours. That’s where my head is now, laying next to yours on that pillow. And I’m holding your hand and I’m brushing your cheek with my fingers. And touching your hair. And I’m whispering to you in your ear.</p><br>
+<p><b>BULLSHIT</b> What are you saying?</p><br>
+<p><b>CARBON</b> May. Oceans. Savor. Breezes. For. You. Brilliant. Yesterday. I. Am. Building. An. Eternity. From. My. Impressions.</p><br>
+<h2 id='15'>15</h2><br>
+<p><b>BULLSHIT</b> Oh, I love kissing you.</p><br>
+<p><b>CARBON</b> Actually, I love kissing you, too.</p><br>
+<p><b>BULLSHIT</b> Oh, really?</p><br>
+<p><b>CARBON</b> Uh hmm, a lot.</p><br>
+<p><b>BULLSHIT</b> Remember that first long kiss we had? We couldn’t stop.</p><br>
+<p><b>CARBON</b> Ohhhh, and I remember our very first kiss was..</p><br>
+<p><b>BULLSHIT</b> Delicate, and..</p><br>
+<p><b>CARBON</b> Yeah.</p><br>
+<p><b>BULLSHIT</b> Yeah, that was wonderful.</p><br>
+<p><b>CARBON</b> I like that second one, too..</p><br>
+<p><b>BULLSHIT</b> Yeah.</p><br>
+<p><b>CARBON</b> And that first night, coming home from the dance club, I was like, I think she likes me and I really hope she likes me, but I wasn’t sure..</p><br>
+<p><b>BULLSHIT</b> Oh!</p><br>
+<p><b>CARBON</b> And then we kissed..</p><br>
+<p><b>BULLSHIT</b> Oh, that’s so cute..</p><br>
+<p><b>CARBON</b> My goodness, I was so nervous.</p><br>
+<p><b>BULLSHIT</b> Oh!..I always thought you were cute..awww..that’s so cute.</p><br>
+<p><b>CARBON</b> I hope she likes me I hope she likes me. I hope she likes me the same way I like her..and then we kissed..</p><br>
+<p><b>BULLSHIT</b> Awww..hold me.</p><br>
+<h2 id='16'>16</h2><br>
+<p><b>BULLSHIT</b> You’re not with me.</p><br>
+<p><b>CARBON</b> I’m just thinking about..</p><br>
+<p><b>BULLSHIT</b> Tell me what you’re thinking.</p><br>
+<p><b>CARBON</b> I’m thinking about when we met.</p><br>
+<p><b>BULLSHIT</b> When was that?</p><br>
+<p><b>CARBON</b> College.</p><br>
+<p><b>BULLSHIT</b> Debt.</p><br>
+<p><b>CARBON</b> Credit cards.</p><br>
+<p><b>BULLSHIT</b> Credit system.</p><br>
+<p><b>CARBON</b> Debt system.</p><br>
+<p><b>BULLSHIT</b> Debt ratio.</p><br>
+<p><b>CARBON</b> P/E ratio.</p><br>
+<p><b>BULLSHIT</b> Rising.</p><br>
+<p><b>CARBON</b> Falling.</p><br>
+<p><b>BULLSHIT</b> Market.</p><br>
+<p><b>CARBON</b> Model.</p><br>
+<p><b>BULLSHIT</b> Cheating.</p><br>
+<p><b>CARBON</b> Learning.</p><br>
+<p><b>BULLSHIT</b> Writing.</p><br>
+<p><b>CARBON</b> Composing.</p><br>
+<p><b>BULLSHIT</b> Performing.</p><br>
+<p><b>CARBON</b> Opera.</p><br>
+<p><b>BULLSHIT</b> Arias.</p><br>
+<p><b>CARBON</b> Songs.</p><br>
+<p><b>BULLSHIT</b> Songs?</p><br>
+<p><b>CARBON</b> Songs. The songs in my head. Play too loud. I can’t think. One minute I’m a genius, the next I am an idiot. I feel I am barely maintaining certain elements of my life, like my job and relationships with people, while I advance other elements in huge strides overnight. This month I have finished twenty six paintings, made ten drawings, and mixed five songs. I toggle between wanting to stop all progress in my life and trying to move on. Between grotesque transfixion on you and transcendent obliviousness. On the whole I hate people more than I ever have before, but I tolerate and occasionally enjoy the company of my close friends. I am monstrously critical. I see every flaw and inconsistency available in the idiotic behaviors of others and me. More and more all I have to say to people is, don’t you realize how stupid you are? But more and more I censor my critical anger and say nothing at all, even to people I care about. These are not my problems. It is not my duty to help. I used to be the host, helping everyone I know feel at home when they are with me. I am less hospitable now. I am not here to entertain. I am not even here to exert a reasonable level of respect. In the past tarot readings consistently turned up the hanged man card to describe me, one who has such mental mastery of the world, such clear understanding of it, that it hinders his ability to actually live. In the card he has suspended himself by his feet, and hangs looking at the world upside down. Now my reading is twofold. To characterize me, the card Devil’s Play, the most diabolic passion and creativity. Divine playfulness. Lack of inhibition. Irreverence. Originality. Spontaneity. Self declared freedom. Laughing away my fears and sorrows. Dancing to my success. And then I pull a second card, asking, what is the seed, what is the basis for this devil’s play? The card I pull is Sorrow.</p><br>
+<p><b>BULLSHIT</b> You don’t have to talk if you don’t want to. This is going to take a long time to go through. In some ways..In some ways you’ll be going through this for the rest of your life. It will get better. I promise it will get better. But it will always be a part of your life. What have you been eating?</p><br>
+<p><b>CARBON</b> Low fat butter.</p><br>
+<p><b>BULLSHIT</b> Parkay!</p><br>
+<p><b>CARBON</b> Butter.</p><br>
+<p><b>BULLSHIT</b> Paraplegics.</p><br>
+<p><b>CARBON</b> Paraplegics?!</p><br>
+<p><b>BULLSHIT</b> Mmm..yummy with butter. Paraplegics.</p><br>
+<p><b>CARBON</b> Veterans.</p><br>
+<p><b>BULLSHIT</b> Hippies.</p><br>
+<p><b>CARBON</b> Boomers.</p><br>
+<p><b>BULLSHIT</b> Republican.</p><br>
+<p><b>CARBON</b> Affair.</p><br>
+<p><b>BULLSHIT</b> Scandal.</p><br>
+<p><b>CARBON</b> Cover up.</p><br>
+<p><b>BULLSHIT</b> 9/11.</p><br>
+<p><b>CARBON</b> Marilyn Monroe.</p><br>
+<p><b>BULLSHIT</b> Fucking Madonna. I don’t want to go to sleep. I want to stay up all night talking with you.</p><br>
+<p><b>CARBON</b> I love this.</p><br>
+<p><b>BULLSHIT</b> So do I.</p><br>
+<p><b>CARBON</b> And the great thing is, after tonight, we’ll have tomorrow..and the day after..</p><br>
+<h2 id='17'>17</h2><br>
+<p><b>BULLSHIT</b> A section of brick walkway lined with young trees whose branches merge into a canopy completely covering me. Leaves from above collect on the bricks. I walk this tunnel wishing I had frog or spider eyes and could see in all directions at once, pained knowing that whatever beauty I choose to admire jealously holds me in its fidelity, and I am incapable of looking elsewhere. Soon it will be winter, and there will be no leaves, but only black and white, dirt and sky lie together.</p><br>
+<h2 id='18'>18</h2><br>
+<p><b>CARBON</b> I’ve been thinking about things in new ways lately, realizing how my mind proceeds and tweaking that, rearranging the wordless logic of each moment. I went camping this weekend and had the most deeply moving spiritual experience of my life. The only way I can talk about it is to say that I danced with a hawk. The next day I laughed and cried and screamed and sang all at once. I laughed behind all, beyond all, laughed like the bottom of the ocean. I find myself more and more at home in diverse portions of the world, and simultaneously becoming less and less compatible with other portions, to the extent that I hardly need to converse with some of it in order to fully understand, and I have absolutely no need or desire to converse with other portions of it in order to know that I can never understand at all..I feel more and more in love and more and more alone as life goes on.</p><br>
+<h2 id='19'>19</h2><br>
+<p><b>BULLSHIT</b> Where did you go, just then? Where are you?</p><br>
+<p><b>CARBON</b> I’m just laying here, and the waves..The waves are washing over and over and over..</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Now. The present as distinguished from the past or future.</p><br>
+<p><b>CARBON</b> I remember waking up and seeing your face in the sunlight. I remember sleeping with you on the roof in summer rain. I remember hearing you breathe. I remember kissing your neck and feeling your fingers slide along my back. I remember you saying my name. I remember that party. The dance club. The thrift store. Our English walks. That night I drove you home. I remember our first kiss. So delicate. So slow..</p><br>
+<p><b>BULLSHIT</b> Time. Verb. Measure of how long something takes. To measure or record the duration, ratio, or speed of something.</p><br>
+<p><b>CARBON</b> You can say we were making love and that gives a general idea of what’s going on. You can say it was good, but what really happened is that you were laying in the front seat of your car with your head against the door and your legs spread. You were rubbing your clitoris with your fingers and my dick was inside of your body. You were gasping, I was moaning, or grunting or something, and we both cum rushing with various juices, catching each other like the rhythm of a train, I’m looking at your face, your mouth is open, your forehead lines rising like a chevron, your fingernails digging into the small of my back. Is that making love? Is that desire? Is that happiness? Some people would interpret it as happiness. Some people would see it as an achievement, a score. Some would feel that they had gained power over another human being. Some would feel ashamed, or guilty if they had attached the idea of moral wrongness to these acts. I think I would call it joy. I would feel a great sense of connection. And love. So I say I am joyful, and I say I am in love, but what does that mean? What does that equate to? Well, it equates to having your head pressed up against the passenger door of your car, it equates to having your legs spread, it equates to feeling my dick inside your body. It equates to gasping. It equates to moaning. It equates to grunting. It equates to rushing with juice. It equates to seeing your face when you cum. It equates to feeling your fingernails cut into the small of my back. It equates to falling, at the end, tired and sweaty in each other’s arms.</p><br>
+<p><b>BULLSHIT</b> You’re so full of shit.</p><br>
+<p><b>CARBON</b> Do you really mean that?</p><br>
+<p><b>BULLSHIT</b> No. I want to fuck you and all you want to do is screw around.</p><br>
+<p><b>CARBON</b> So what’s the problem?</p><br>
+<p><b>BULLSHIT</b> Forget it.</p><br>
+<p><b>CARBON</b> I’m just kidding.</p><br>
+<p><b>BULLSHIT</b> I’m tired of kidding. I want adulting.</p><br>
+<p><b>CARBON</b> I’m not in the mood for adulting.</p><br>
+<p><b>BULLSHIT</b> I know.</p><br>
+<p><b>CARBON</b> You have me down.</p><br>
+<p><b>BULLSHIT</b> Yeah. I do.. I’ll be out with the girls.</p><br>
+<p><b>CARBON</b> I’ll be right here..Time. Verb. Set the time of something. To regulate or set the time of something such as a clock or a train’s schedule.</p><br>
+<h2 id='20'>20</h2><br>
+<p><b>CARBON</b> I dreamt I lied to you. I dreamt I had sex with a demon.</p><br>
+<p><b>BULLSHIT</b> Did you like it?</p><br>
+<p><b>CARBON</b> Why do you need to know that?</p><br>
+<p><b>BULLSHIT</b> You did like it then.</p><br>
+<p><b>CARBON</b> Of course I did.. What did you dream?</p><br>
+<p><b>BULLSHIT</b> That you lied to me.</p><br>
+<p><b>CARBON</b> Time. Noun. Playing period. A period of play in a game. I dream of negligence nagging me past tense. Of writers and fame and parties where I stood on the rim.</p><br>
+<h2 id='21'>21</h2><br>
+<p><b>BULLSHIT</b> Time. Noun. Military service. A term of military service.</p><br>
+<p><b>CARBON</b> Time. Noun. Period worked. The period during a day or week that somebody works.</p><br>
+<p><b>BULLSHIT</b> Working half time.</p><br>
+<p><b>CARBON</b> Time. Noun. Pay. A rate of pay.</p><br>
+<p><b>BULLSHIT</b> Paid double time.</p><br>
+<p><b>CARBON</b> Time. Noun. Geologic division. A chronologic division of geologic history.</p><br>
+<p><b>BULLSHIT</b> Time. Verb. Stay in rhythm. To keep time to a rhythmical or musical beat. Old English tima, period of time from a prehistoric Germanic base meaning, to extend, which is also the ancestor of English tide.</p><br>
+<p><b>CARBON</b> All in good time.</p><br>
+<p><b>BULLSHIT</b> No sooner than is appropriate. All the time.</p><br>
+<p><b>CARBON</b> Continuously. At one time.</p><br>
+<p><b>BULLSHIT</b> At a time in the past.</p><br>
+<p><b>CARBON</b> Simultaneously. At the same time.</p><br>
+<p><b>BULLSHIT</b> Simultaneously.</p><br>
+<p><b>CARBON</b> Nevertheless. At times.</p><br>
+<p><b>BULLSHIT</b> Sometimes. Behind the times.</p><br>
+<p><b>CARBON</b> Out of touch with modern fashions, methods, or attitudes. For the time being.</p><br>
+<p><b>BULLSHIT</b> For a short period of time starting from now. From time to time.</p><br>
+<p><b>CARBON</b> Occasionally. Have no time for somebody or something.</p><br>
+<p><b>BULLSHIT</b> To regard somebody or something with dislike or contempt. Have the time of your life.</p><br>
+<p><b>CARBON</b> To have a very enjoyable experience. In good time.</p><br>
+<p><b>BULLSHIT</b> Early enough. We were in time for the concert. In time.</p><br>
+<p><b>CARBON</b> After some time has passed. He’ll understand in time that you were trying to help him. In time.</p><br>
+<p><b>BULLSHIT</b> In the correct rhythm. Clapping in time to the music. In your own time.</p><br>
+<p><b>CARBON</b> At a speed or pace that feels natural or comfortable. Keep time.</p><br>
+<p><b>BULLSHIT</b> To show the time accurately. Keep time.</p><br>
+<p><b>CARBON</b> To do something in the correct rhythm, or in the same rhythm as somebody or something else. Live on borrowed time.</p><br>
+<p><b>BULLSHIT</b> To enjoy an unexpected extension of life. Make time with somebody.</p><br>
+<p><b>CARBON</b> Informal. To pursue somebody as a sexual partner. On time.</p><br>
+<p><b>BULLSHIT</b> At the scheduled time. On your own time.</p><br>
+<p><b>CARBON</b> Not during work hours. Pass the time of day with somebody.</p><br>
+<p><b>BULLSHIT</b> To engage in casual conversation with somebody. Take your time.</p><br>
+<p><b>CARBON</b> To take whatever time is necessary. Take your time.</p><br>
+<p><b>BULLSHIT</b> To do something unacceptably slowly. Time after time. Time and time again.</p><br>
+<p><b>CARBON</b> Repeatedly.. I dream of sex.</p><br>
+<p><b>BULLSHIT</b> I guess you do.</p><br>
+<p><b>CARBON</b> I dream of strawberries and hot tubs and chocolate and ice. I dream of lace and panties and bras. I dream of sweat and showers.</p><br>
+<p><b>BULLSHIT</b> I dream of undressing myself for you. I dream of riding you like a horse. Fucking you. Licking your ears, sucking your dick.</p><br>
+<p><b>CARBON</b> I dream of feathers and cotton.</p><br>
+<p><b>BULLSHIT</b> I dream of tickling you with my hair.</p><br>
+<p><b>CARBON</b> I dream of here and there.</p><br>
+<p><b>BULLSHIT</b> I dream, I dream, I dream..</p><br>
+<h2 id='22'>22</h2><br>
+<p><b>BULLSHIT</b> You’re a cutie.</p><br>
+<p><b>CARBON</b> You’re a demon.</p><br>
+<p><b>BULLSHIT</b> You’re so hot.</p><br>
+<p><b>CARBON</b> Stop.</p><br>
+<p><b>BULLSHIT</b> Why?</p><br>
+<p><b>CARBON</b> Okay, keep going.</p><br>
+<p><b>BULLSHIT</b> Why am I a demon?</p><br>
+<p><b>CARBON</b> It’s not a bad thing. I call my favorite girl Satan.</p><br>
+<p><b>BULLSHIT</b> I’m not your favorite girl? How come I’m not Satan? How come I’m only a demon?</p><br>
+<p><b>CARBON</b> You’ve still got your clothes on. You’re still pretty much on your side of the room. How can you be anything more than a demon?</p><br>
+<p><b>BULLSHIT</b> Well, I just got here..give me a second..</p><br>
+<p><b>CARBON</b> Take five.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Timeout. Nibble. Succulent. Psychedelic. Mold.</p><br>
+<p><b>CARBON</b> Organic post-clinical psychotherapy.</p><br>
+<p><b>BULLSHIT</b> Woody Allen movies.</p><br>
+<p><b>CARBON</b> Prescription drug abuse.</p><br>
+<p><b>BULLSHIT</b> Depression.</p><br>
+<p><b>CARBON</b> Mania.</p><br>
+<p><b>BULLSHIT</b> Insanity.</p><br>
+<p><b>CARBON</b> Antisociality.</p><br>
+<p><b>BULLSHIT</b> Perverse eccentricities.</p><br>
+<p><b>CARBON</b> Senile dementia.</p><br>
+<p><b>BULLSHIT</b> Health insurance.</p><br>
+<p><b>CARBON</b> Co-payments.</p><br>
+<p><b>BULLSHIT</b> Hypochondria.</p><br>
+<p><b>CARBON</b> Disease envy.</p><br>
+<p><b>BULLSHIT</b> Coping fantasies.</p><br>
+<p><b>CARBON</b> Coping strategy.</p><br>
+<p><b>BULLSHIT</b> The overboard.</p><br>
+<p><b>CARBON</b> The underground.</p><br>
+<p><b>BULLSHIT</b> Suits in porno shacks.</p><br>
+<p><b>CARBON</b> Masters of the universe.</p><br>
+<p><b>BULLSHIT</b> Tom..?</p><br>
+<p><b>CARBON</b> Wolfe.</p><br>
+<p><b>BULLSHIT</b> Wolfe.</p><br>
+<p><b>CARBON</b> Vampire.</p><br>
+<p><b>BULLSHIT</b> Gladiators.</p><br>
+<p><b>CARBON</b> Talk shows.</p><br>
+<p><b>BULLSHIT</b> L.A.</p><br>
+<p><b>CARBON</b> Athens.</p><br>
+<p><b>BULLSHIT</b> Rome.</p><br>
+<p><b>CARBON</b> Carthage.</p><br>
+<p><b>BULLSHIT</b> Carthage. Noun. Site of an ancient city, founded by the Phoenicians on the northern coast of Africa in eight fourteen b.c.</p><br>
+<p><b>CARBON</b> Soldiers returning from battle, wheelchair bound, destined for the psych wards, damned to wander civilization’s peacetime misplaced, crippled heroes dosed with Thorazine, Zoloft dinner partners popping pill compartments at the roadside diner.</p><br>
+<p><b>BULLSHIT</b> Violence, as the technological pill eclipses its own pharmacist, and the elite behave inhumanly, while the reflexive murder perpetrated among the mass of the poor makes them more understandable, more sensible, less prone to induce the tones of hell than the lonely parasite they feed.</p><br>
+<p><b>CARBON</b> Parasite. Noun. Organism living on another. A plant or animal that lives on or in another, usually larger host organism in a way that harms or is of no advantage to the host.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Instance. A separate occasion of a recurring event. I told you three times.</p><br>
+<p><b>CARBON</b> Looking at clocks is a fairly recent thing for me. I look at the clock six times each night before I go to bed. I look at the clock eight times in the morning when my alarm goes off. If someone asks me what time it is, I look at my watch twice before I tell them what time it is. Then I look at my watch three more times, looking away in-between each glance, and then I usually tell the person what time it is again, by that time it’s usually the next minute and if it is I tell the person the new time. My watch shows the seconds but when people ask me what time it is I don’t tell them the seconds, because most people don’t really care all that much about the seconds. The seconds are everything. Eight fifty-seven and forty-nine seconds is a completely different animal than eight fifty-seven and thirty-two seconds. Thirty-two seconds is maybe roundable to thirty seconds, thirty-two seconds is maybe roundable to thirty-three or thirty-five seconds. Forty-nine seconds is almost fifty and fifty is almost a minute. You could never round forty-nine seconds down to forty-five, it just wouldn’t make sense, you’re already there, you’re at fifty, you’re practically through with the minute. When I’m at fifty-nine seconds I’m already at five or ten after. Fifty-nine is over by the time you think about it, thinking about fifty-nine at fifty-nine is basically a moot point, you know, you might as well start planning on the next ten or fifteen seconds, at least five, just to give yourself a heads up. Most of the time when I’m on fifty-nine I’m already at twenty again, but, but, as I was saying my obsession with actually looking at the numbers on clocks is a fairly recent thing. When I was a kid I used to go out on the street and throw clocks down on the asphalt and take hammers and smash them into little bits when I was a kid I would take clocks apart, you see?</p><br>
+<p><b>BULLSHIT</b> You are madness.</p><br>
+<p><b>CARBON</b> You are gall.</p><br>
+<p><b>BULLSHIT</b> Eight fifty-seven a.m. Carbon and bullshit goes to the beach.</p><br>
+<p><b>CARBON</b> Eight fifty-seven a.m. Tired of looking at my watch, but apparently unable to break the habit with thought alone, I enact a foolproof solution which I have been considering for some time.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Prison term. A term in prison. Informal. Serve time for robbery.</p><br>
+<p><b>CARBON</b> You are the criminal.</p><br>
+<p><b>BULLSHIT</b> I am the crime.</p><br>
+<p><b>CARBON</b> You are subliminal.</p><br>
+<p><b>BULLSHIT</b> I am sublime.</p><br>
+<p><b>CARBON</b> You are the beat.</p><br>
+<p><b>BULLSHIT</b> I am the beat. I carry you forth. I strike your heart. I entrance your ability to breathe until your life is a pebble in my phantom hand.</p><br>
+<p><b>CARBON</b> You are a phantom.</p><br>
+<p><b>BULLSHIT</b> I am the phantasm. I walk among flesh, screech as the wind. I take on any form that makes me laugh and my laugh is your thunder, siphon crushing shores of sand and cyclones searing waves of grain. My laugh is the terror you feel upon waking from a dream. My laugh is sheets of salty rain beating on tin. My laugh is ancient ruin, statues cast in blood screaming at you in a tongue composed of clicks and babbles, whispering at you in a spiral you can never catch, slicing you open again with the knife you just handed me, scratching your eyes out with nails, disarming you, birthing you, bleeding you like a gutter.. Beat.</p><br>
+<p><b>CARBON</b> Beat.</p><br>
+<p><b>BULLSHIT</b> Beat. Beat.</p><br>
+<p><b>CARBON</b> Beat. Beat.</p><br>
+<p><b>BULLSHIT</b> Time. Noun. Musical beat. The number of beats per measure of a musical composition.</p><br>
+<p><b>CARBON</b> You are the tower.</p><br>
+<p><b>BULLSHIT</b> I am a column of fire with wings.</p><br>
+<p><b>CARBON</b> You are the phoenix. You rise.</p><br>
+<p><b>BULLSHIT</b> Like an angel.</p><br>
+<p><b>CARBON</b> Like inferno.</p><br>
+<p><b>BULLSHIT</b> Like a mushroom. Hiroshima.</p><br>
+<h2 id='23'>23</h2><br>
+<p><b>CARBON</b> I bet I can make a card house that’s five hundred stories tall.</p><br>
+<p><b>BULLSHIT</b> I bet I can write a book for every letter in the alphabet.</p><br>
+<p><b>CARBON</b> I bet I can hold my breath for six minutes.</p><br>
+<p><b>BULLSHIT</b> I bet I can make an ice cube out of a hairdryer.</p><br>
+<p><b>CARBON</b> I bet I can add up all the numbers from one to five hundred in my head.</p><br>
+<p><b>BULLSHIT</b> I bet I can train a worm to sing.</p><br>
+<p><b>CARBON</b> I bet I can pick up a car with my bear hands and lift it above my head.</p><br>
+<p><b>BULLSHIT</b> I bet I can swallow a snake.</p><br>
+<p><b>CARBON</b> I bet I can make a bus fly like a bird.<br>
+<b>BULLSHIT</b> I bet I can write a poem that will make you cry.</p><br>
+<p><b>CARBON</b> I bet I can lead a revolution.</p><br>
+<p><b>BULLSHIT</b> I bet I can predict your future.</p><br>
+<p><b>CARBON</b> I bet I can make you cum, twice, just by breathing in your ear.</p><br>
+<p><b>BULLSHIT</b> I bet you can.</p><br>
+<p><b>CARBON</b> I bet I can make a train travel faster than light.</p><br>
+<p><b>BULLSHIT</b> I bet I can write eight hundred symphonies by the time I’m thirty.</p><br>
+<p><b>CARBON</b> I bet I can paint the world on the tip of a needle.</p><br>
+<p><b>BULLSHIT</b> I bet I can eat eighteen boxes of macaroni and cheese in half an hour.</p><br>
+<p><b>CARBON</b> I bet I can memorize the first one hundred thousand digits of pi.</p><br>
+<p><b>BULLSHIT</b> I bet I can make a machine out of sand that will add and subtract.</p><br>
+<p><b>CARBON</b> I bet I can make it add, subtract, multiply, and divide.</p><br>
+<p><b>BULLSHIT</b> I bet I can make it do formulas.</p><br>
+<p><b>CARBON</b> I bet I can make it recognize fingerprints.</p><br>
+<p><b>BULLSHIT</b> I bet I can make it beat you in chess.</p><br>
+<p><b>CARBON</b> I bet I can make it think. I can also make it so small that it fits in the palm of your hand.</p><br>
+<p><b>BULLSHIT</b> I can make it so small you can’t even see it.</p><br>
+<p><b>CARBON</b> I can make..a bomb..out of a single atom..that can destroy the entire universe.</p><br>
+<p><b>BULLSHIT</b> You’re such a freak.</p><br>
+<p><b>CARBON</b> Freak. Noun. Strikingly unusual person, animal, plant. A person, animal, or plant that is strikingly unusual, and appears to be unique or occurs very rarely. Somebody unconventional. Somebody who behaves unusually or has unusual tastes or habits.</p><br>
+<p><b>BULLSHIT</b> Baryshnikov.</p><br>
+<p><b>CARBON</b> Michael Jackson.</p><br>
+<p><b>BULLSHIT</b> Picasso.</p><br>
+<p><b>CARBON</b> Busta Rhymes.</p><br>
+<p><b>BULLSHIT</b> Shakespeare.</p><br>
+<p><b>CARBON</b> Feynman.</p><br>
+<p><b>BULLSHIT</b> Derrida.</p><br>
+<p><b>CARBON</b> John Lennon.</p><br>
+<p><b>BULLSHIT</b> Trent Reznor.</p><br>
+<p><b>CARBON</b> Tori Amos.</p><br>
+<p><b>BULLSHIT</b> Madonna.</p><br>
+<p><b>CARBON</b> Basquiat.</p><br>
+<p><b>BULLSHIT</b> Fucking Warhol.</p><br>
+<p><b>CARBON</b> Fucking Warhol.. Jesus.</p><br>
+<p><b>BULLSHIT</b> Malcom X.</p><br>
+<p><b>CARBON</b> Joan of Arc.</p><br>
+<p><b>BULLSHIT</b> Queen Elizabeth.</p><br>
+<p><b>CARBON</b> Lincoln.</p><br>
+<p><b>BULLSHIT</b> Orville and Wilbur Wright.</p><br>
+<p><b>CARBON</b> Turing.</p><br>
+<p><b>BULLSHIT</b> Mozart.</p><br>
+<p><b>CARBON</b> Mozart.</p><br>
+<p><b>BULLSHIT</b> Checkmate.</p><br>
+<p><b>CARBON</b> Checkmate. Noun. Winning position in chess. A move or position in chess, in which a player’s king cannot escape check and the other player wins the game.. Do you know how many definitions of time there are in the dictionary?</p><br>
+<p><b>BULLSHIT</b> How many?</p><br>
+<p><b>CARBON</b> I don’t know.. I stopped reading after sixty two. Time. Noun. A dimension enabling two identical events occurring in the same point in space to be distinguished..by measuring the interval between the events.</p><br>
+<p><b>BULLSHIT</b> Time. In one second a bullet from a gun travels three thousand feet.</p><br>
+<p><b>CARBON</b> In one second a particle of light travels one hundred and eighty-six thousand miles.</p><br>
+<p><b>BULLSHIT</b> According to the Big Bang Theory our universe expanded from something smaller than a piece of dust to approximately its present size in a tiny fraction of a second.</p><br>
+<p><b>CARBON</b> That first second is always the longest one.</p><br>
+<p><b>BULLSHIT</b> That second before you start to wake up.</p><br>
+<p><b>CARBON</b> Me. This is not me. I’m not here. I’m not hearing this. I don’t have to do this I never meant to come here I hate it here I’m never coming back I don’t know why you think this is necessary I can’t be seen no one can see me I don’t know what they’re doing I’ve never been to one of these before I didn’t know it would be like this it’s not what I imagined I wish it wasn’t I wish it wasn’t I can’t fathom how they’d feel that way they should hate me they should hate me want me dead they should kill me and want me in jail they should try to make me hurt they should kill me they should kill me but they don’t have to I will kill myself so they don’t have to look at me I will kill myself so they won’t have to think about me anymore, I will kill myself so I won’t have to think anymore, I will kill myself to make it even kill myself to make it even kill myself to make it even.</p><br>
+<h2 id='24'>24</h2><br>
+<p><b>BULLSHIT</b> Everything. Everything is happening.</p><br>
+<h2 id='25'>25</h2><br>
+<p><b>CARBON</b> Dreaming in bed at eight a.m. Rolling over and the covers coming off my head. Cold. The door is closing and my roommate leaves for work. I’m burying my head in the blankets, trying to keep my ears warm, but I can’t. The sun is coming in higher through the window and the mailbox is opening and closing. Someone’s coming by later to fix the sink and I’m hitting snooze for the fiftieth time and I’m looking at the seconds, and they just keep coming, faster and faster and—</p>
+        </div>
+    </body>
+</html>
