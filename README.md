@@ -38,6 +38,7 @@ yes =)
 
 ### active
 
+- [dirtbox](http://dirtbox.cc) (html formatted versions of my books)
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
 - [@dirt](https://stranger.social/@dirt) (photos / books)
 - [smugmug](https://dirt.smugmug.com) (photos / ai)
