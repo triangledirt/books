@@ -38,7 +38,7 @@ yes =)
 
 ### active
 
-- [patreon](https://www.patreon.com/dirtlove) (bonus / personal)
+- [patreon](https://www.patreon.com/dirtlove) (blog)
 - [dirtbox](http://dirtbox.cc) (html versions of my books)
 
 ### inactive
