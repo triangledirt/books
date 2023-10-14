@@ -38,13 +38,13 @@ yes =)
 
 ### active
 
+- [@dirt](https://stranger.social/@dirt) (daily photography)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
-- [dirtbox](http://dirtbox.cc) (html versions of my books)
+- [dirtbooks](http://dirtbooks.cc) (books)
 
 ### inactive
 
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
-- [@dirt](https://stranger.social/@dirt) (photos / books)
 - [smugmug](https://dirt.smugmug.com) (photos / ai)
 - [@dirt@lor.sh](https://lor.sh/@dirt) (blog)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
