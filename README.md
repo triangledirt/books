@@ -39,6 +39,7 @@ yes =)
 ### active
 
 - [@dirt](https://stranger.social/@dirt) (daily photography)
+- [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
 - [dirtbooks](http://dirtbooks.cc) (books)
 
 ### inactive
