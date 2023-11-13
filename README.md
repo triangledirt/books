@@ -30,7 +30,7 @@ matthew van temple
 
 yes !!
 
-my books are licensed under [cc by 4.0](http://creativecommons.org/licenses/by/4.0/)
+my books are licensed under [cc by 40](http://creativecommons.org/licenses/by/4.0/)
 
 ## is there more ??
 
@@ -38,9 +38,10 @@ yes =)
 
 ### active
 
+- [dirtbooks.cc](http://dirtbooks.cc) (html books)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (daily photography)
+- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
-- [dirtbooks.cc](http://dirtbooks.cc) (books)
 
 ### inactive
 
