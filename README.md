@@ -4,7 +4,7 @@ novels and memoirs of a darkly comic america
 
 ## which book should i read first ??
 
-[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md) is a novella about a couple thrown together at an amusement park (start with this)
+[things said in dreams](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md](https://github.com/triangledirt/books/blob/main/Things%20Said%20in%20Dreams.md)
 
 ## what is your writing process ??
 
