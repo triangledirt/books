@@ -40,8 +40,8 @@ yes =)
 
 - [dirtbooks.cc](http://dirtbooks.cc) (html books)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (daily photography)
-- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
+- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 
 ### inactive
 
