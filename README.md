@@ -41,11 +41,11 @@ yes =)
 - [dirtbooks.cc](http://dirtbooks.cc) (html books)
 - [@dirt@stranger.social](https://stranger.social/@dirt) (daily photography)
 - [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
-- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 
 ### inactive
 
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
+- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
 - [smugmug](https://dirt.smugmug.com) (photos / ai)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
