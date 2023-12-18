@@ -39,7 +39,7 @@ yes =)
 ### active
 
 - [dirtbooks.cc](http://dirtbooks.cc) (html books)
-- [@dirt@particle.lol](@dirt@particle.lol) (daily photography)
+- [@dirt@particle.lol](https://particle.lol/@dirt) (daily photography)
 - [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
 
 ### inactive
