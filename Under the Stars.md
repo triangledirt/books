@@ -1382,7 +1382,7 @@ I almost cry, thinking of the simplicity that my life could have here. I can was
 
 I finish my clothes and am sad to leave the laundromat. That was a nice little pocket of time, in there, journal writing, coming up with new ideas, not talking to anyone. I schlep my bag and head up the street.
 
-They begrudgingly give me an application at the McDonald's. Everyone behind the counter is hispanic. I sit in a booth with my bag facing me and fill it out.
+They begrudgingly give me an application at the McDonald's. Everyone behind the counter is Hispanic. I sit in a booth with my bag facing me and fill it out.
 
 I lie about my job history, because no one at McDonalds's wants to hear that I made more in a year than they make in ten. It begs the question: why do you want to work here? I put down my previous dishwashing job and leave it at that.
 
