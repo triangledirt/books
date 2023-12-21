@@ -4,7 +4,7 @@ novels and memoirs of a darkly comic america
 
 ## which book should i read first ??
 
-[clarity](https://github.com/triangledirt/books/blob/main/Clarity%3B%29.md) is a novella about a couple thrown together at an amusement park (start with this)
+[things said in dreams](https://github.com/triangledirt/books/blob/main/Things%20Said%20in%20Dreams.md)
 
 ## what is your writing process ??
 
@@ -30,7 +30,7 @@ matthew van temple
 
 yes !!
 
-my books are licensed under [cc by 4.0](http://creativecommons.org/licenses/by/4.0/)
+my books are licensed under [cc by 40](http://creativecommons.org/licenses/by/4.0/)
 
 ## is there more ??
 
@@ -38,15 +38,16 @@ yes =)
 
 ### active
 
-- [@dirt](https://stranger.social/@dirt) (daily photography)
-- [dirtbooks](http://dirtbooks.cc) (books)
+- [dirtbooks.cc](http://dirtbooks.cc) (html books)
+- [@dirt@particle.lol](https://particle.lol/@dirt) (daily photography)
+- [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
 
 ### inactive
 
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
+- [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
 - [smugmug](https://dirt.smugmug.com) (photos / ai)
-- [@dirt@lor.sh](https://lor.sh/@dirt) (blog)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
 - [listed.to/@dirt](https://listed.to/@dirt) (blog)
 - [listed.to/@triangledirt](https://listed.to/@triangledirt) (blog)
