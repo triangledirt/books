@@ -5546,7 +5546,7 @@ I smile.
 
 "You ever use higher-level languages?"
 
-"Only when I have to! You can do everything from C
+"Only when I have to! You can do everything from C."
 
 "We feel the same way here. We do all our core development in C."
 
