@@ -80,6 +80,8 @@ I got increasingly fed up. Once I accused my boss of lying, of stealing my idea 
 
 After I got fired from that job I went to film school. I had always wanted to be a film director since I saw Indiana Jones, as a kid, so I found a film school in Hollywood and applied. Before I ever got accepted I put my girlfriend and all my possessions into my Honda CRX and drove across the country. I had decided I was going to that film school no matter what. And if they didn't accept me then I would live in Hollywood and somehow find a way to make movies. We got the call somewhere in New Mexico that I was accepted.
 
+My approach for how I would pay for school was equally optimistic.  I assumed I could get a loan.  When I sat in the bay of computers the school provided for this purpose, tapping the keys, entering my income information, I knew I would be denied.  I was right.  I called my dad and asked him to cosign.  He agreed with the understanding that when school was done, I would again get a tech job and pay him back.  Why did my dad agree to cosign a loan that could buy a decent sized house?  With me?  His wayward kid.  I think I know and I think I'd rather tell you later.
+
 I polished my novel while I was going to film school, but couldn't find a publisher. I was laughed at by literary agents. My novel was too "experimental" to be published. They didn't get it. They didn't see what I was doing. It killed me that it wasn't going to be published, so I published it myself.
 
 I broke up with my girlfriend, started doing coke. I excelled at film school. My films were consistently critiqued glowingly; I was at the top of my class. Cocaine was a drug I always said I'd never try—that and heroin. Once I started doing drugs, I thought I'd be ok as long as I never did "hard drugs," and to me those were heroin and coke. Someone in my apartment complex during film school offered me crystal meth ("ice" he called it). I tried it. It was wonderful. I faltered in my directing lab exercise the following Monday. I told myself I would never do crystal again—it was just too good.
@@ -143,6 +145,7 @@ The past fades with time, and coming out into the city, I feel brand new. I feel
 I have today to get settled at the apartment in Queens. Have the train instructions that Joanne gave me right here on this little strip of paper. Then tomorrow to make a test run on the subway to my job so I make sure I know how to get there. The afternoon to buy clothes. Then Tuesday, my first day at Maxwell Interactive.
 
 ## 2
+
 My last day is three months later.
 
 I work the best I can under the circumstances of the job. I ride the train from Astoria, Queens to Union Square every day. I work at a tiny desk with no phone. Conference calls with the client are part of the job, but I'm expected to use my own phone to participate. I demand a phone from my boss, and eventually he gets one for me and my coworker to share.
@@ -354,6 +357,7 @@ Somewhere in Manhattan I switch trains. I head for my sister's apartment in Quee
 The train arrives in Astoria. I get off at the last stop, leaving Thomas's watch on the seat for someone else to find.
 
 ## 3
+
 The walk from the platform to my sister's apartment is painful. My muscles ache from clenching. My eyes and lips are dry. The whole world seems pointless. Just as a crack high is indescribable, so is coming down off crack. Believe this: it hurts.
 
 It isn't just the feeling of coming back to normal. It's the feeling of being depleted of everything good and the only way to fix it is to smoke more crack.
@@ -527,6 +531,7 @@ She just looks at me.
 So Megan clocks out and Charles takes her tables and Megan and I sit there until after they close and we talk about my job and my other jobs and what I think I'm going to accomplish by moving to Arizona and Megan is very sweet and has more than one glass of wine and even invites me to stay at her place that night but I refuse. I'm very drunk and very full by the time I leave the restaurant. Megan and I walk to the station together and we take our separate trains. That's the last time I ever see her.
 
 ## 4
+
 When I get home both Summer and Joanne's doors are closed. I use the bathroom and sneak into Joanne's room. I can see the bed by light from the hallway. We sleep on a futon, side by side, using different covers of course. Joanne is sleeping—a light snore comes from her. I take off my shoes and strip to my boxers, then pass out.
 
 I have the apartment to myself the next day. I go through all my stuff (which isn't much) and I get rid of all my papers I had printed from work. I have a few books, which I place on the stoop. It is most difficult to decide what to do with my notebooks. I've collected a couple during my stay in New York and written on some of their pages. And clothes: who needs clothes? I pick out three shirts and two pairs of pants. The pants are eight-pocket cargo ones I got in Los Angeles, and they're my favorite pants ever. I will keep two changes of clothes in my bag, and wear one. That's all I need.
@@ -762,6 +767,7 @@ So we turn Joanne's futon sideways and all get in it and we watch Eight Below Ze
 Then we hug goodnight.
 
 ## 5
+
 The next morning I fly to New Orleans. I check my bag for convenience. I'm going to have to be carrying it enough, I might as well give myself an easy time now.
 
 In Atlanta, I write. I write about New York. I summarize my reasons for leaving Maxwell Interactive. I reflect on what I hope to accomplish in Tucson. Get a job (an acceptable one). Get a place to live. Live a quiet life, unbothered by people.
@@ -1091,6 +1097,7 @@ I stay with Tatiara one night and the next day they take me with them to Starbuc
 I turn my back to them and walk with my pack through the French Quarter, through downtown New Orleans and to the Greyhound station. I buy my ticket and sit down in one of the rows and rows of empty seats. A few people who I assume are bums are also sitting here. I reach in my bag to grab a new pair of socks and cut myself on my shaving razor. When I pull my hand out it's bleeding pretty bad. If I was in civilization I would use a Band-Aid. As it is I press a sock against it and hope this isn't a bad omen.
 
 ## 6
+
 I ride the bus from New Orleans to Tucson. It's a long ride. My bag is underneath the bus and I find myself wondering if it's still there. All my stuff is in that bag and I can't have it getting derailed to Saskatchewan or something.
 
 It's nighttime. There's a woman sitting next to me telling me her husband just left her and she's moving to Houston to start a new life. She's got a pocket full of money and one suitcase and I instantly relate.
@@ -1362,6 +1369,7 @@ Once I'm drunk I decide to call my friend.
 So I tell her. I tell her everything. From the blood stains on the mattress to the fact that Sashi used to hang out with the crackheads when she stayed here and said they were her favorite people in the world. We talk for a long time, and I wish I had another bottle of wine, and too soon we're saying our goodbyes and I'm charging my phone in the dingy wall outlet and lying down on the bed with my bag beside me and my wool hat on my head.
 
 ## 7
+
 I stay awake for a long time. Gradually, I realize it's because I'm cold. The room isn't heated and there aren't any blankets. I close the tiny window at the top of the wall. That doesn't help. Finally I get out my sleeping bag and snug myself inside.
 
 Just my head is sticking out—and I have my hat. The sleeping bag lives up to its rating, and I get some sleep.
@@ -1533,6 +1541,7 @@ I drink a lot.
 I thank her and I think of how nice she is and how in LA or New York no one would ever just give you the bottle price after you've had four glasses of wine. This is what I need. A more easy-going town, where people aren't so wrapped up in business that they forget the personal. I feel myself breathing out, my whole self, just breathing out. I scoot up in the corner of the booth and drink my wine and type my words and think how many more years will it take me to finish this play. I don't know if anyone will ever see it produced on stage, but I'm going to write it just the same.
 
 ## 8
+
 A few days later, I text my friend Sarah. Sarah and I lived in the same house in Tucson a few years back. She agrees to meet me at Time Market, this little pizza shop/grocery store on University Boulevard.
 
 I'm sitting at a table by the window when I see her. She rides up on a bike. I stand to hug her.
@@ -1800,6 +1809,7 @@ She slides the slice of pizza to me.
 I take my piece of pizza with sausage and feta and I eat it by the window. It tastes extra good tonight.
 
 ## 9
+
 My first night at the Grill is Friday, and it is busy like Bahir promised. I knew it to have been busy on weekend nights from when I lived here before. The rest of the week: desolate. Friday and Saturday nights: chaos.
 
 And when I say chaos I mean both parts of the restaurant open, every table filled. People waiting outside to get in. Three cooks, one dishwasher, one bartender, and four servers. The dishwasher is also the busser. Bahir is one of the cooks.
@@ -2007,6 +2017,7 @@ I have a feeling of joy, and I think more than anything it's that I'm in an out-
 I finish my work at the Grill and Bahir says good job. It isn't till I'm walking down the street that I realize the busses aren't running. I zip up my hoodie and tighten my pack for the walk home.
 
 ## 10
+
 I wake up at noon. It's my day off. That means no being yelled at by Jesse and no endless pile of dishes at the Grill. It also means I won't get paid, and I need to work as many days as possible. In truth, I wish I didn't have a day off.
 
 I look at the ceiling. Ages of decay, never maintained. It's an army of cracks. And this..what is this? Someone has managed to get a blood stain on the ceiling. Or maybe it's vomit. Someone threw vomit up there. I'm shivering in my sleeping bag and I really don't want to get out of bed but I also don't like spending time at the Paradise when I'm awake. It's a dismal, dismal place.
@@ -2388,6 +2399,7 @@ I think about Susan's offer, and while I'd love to be closer to Susan and Bob an
 I leave the Casbah in time to catch the last bus down 6th Avenue. On my ride home, with my bag beside me, I feel as if I own the world. When I get back to the Paradise, those three are still lodged in front of their doorway. They wave to me, but I don't go over.
 
 ## 11
+
 I have a little money left but not enough to rent another week at the Paradise. My week runs out. I spend my last night on the blood-stained mattress. I pack my bag. I turn in my key at the desk. And I walk up 6th Avenue. I'm not riding the bus because it's too expensive. I've heard there's a shelter where 6th Ave meets the highway, so I head that direction. The sun is instantly hot and I'm sweating carrying my bag. I think: this is it, I'm homeless. I don't know where I'm sleeping tonight. I feel a thrill, and I feel like, what have I done wrong? Why am I now one of the people who are homeless, when before I was one of the ones who are not?
 
 Right as I leave the Paradise, right as I'm heading up 6th Ave, this kid who is walking faster than me talks to me.
@@ -2579,6 +2591,7 @@ I smile.
 I close the gate on my way out of their yard. The night air chills my arms, and I pull my hat from my pocket and put it on. I head down the block confidently, even though I have no idea where I'm going.
 
 ## 12
+
 I start to see the city in different ways, tonight. Every piece of property becomes a possible place to stay.
 
 I see little leaf overhangs, where a viney bush creates a pocket of darkness, and I think I could sleep there. I go down alleyways instead of regular streets. I could sleep behind those trash cans.
@@ -2744,6 +2757,7 @@ Right there is Surfer Dan, a 35-year-old homeless guy. No bag, no phone, no extr
 Surfer Dan asks me if I have any money and I tell him no. I stand there staring at him for a minute and he doesn't even notice. He's become a fixture in my mind, from way back in the days when I lived here before. Now he's too close to home, a reminder of myself. Before when I lived here I bought palm leaf sculptures from him. Now I'm on a mission: never, ever become Surfer Dan.
 
 ## 13
+
 I'm washing dishes at the Casbah. I've pretty much learned where all the dishes go. Learned my extra duties: carrying food to the walk-in, taking out the trash. Crushing cardboard boxes that produce comes in is one of my duties. Everyone else just tosses them over the fence in the back. I flatten them and put them in the dumpster.
 
 When I'm washing dishes, I rarely have to talk to people. Most of my talking has been asking where things go. That doesn't happen as much now. I'm mostly in my own world, running load after load of cups and plates and plastic bowls through the machine.
@@ -3009,6 +3023,7 @@ Luke is asking me if I liked it. I just lie down on the floor and look at the TV
 The next morning I wake up on the floor. I take a shower and put on the same clothes as before. Luke is in his bedroom sleeping, and I sit on the couch with a headache waiting for him to wake up. Finally I speak to him and he rolls over. It takes him about an hour to get out of bed. We eat breakfast at his house, which consists of him blending up a bunch of celery and me eating one half of an un-toasted English muffin. Luke takes a forty-five minute shower. He never once asks about my film school videos. About the only conversation we have is him asking me where I want him to drop me. And driving down Speedway, in his vintage car, I am pretty sure I wish Luke had never come to the North, and I had passed out drunk in my sleeping bag last night, under the stars.
 
 ## 14
+
 My notebook fills up, so I buy a new one at a stationery store on Fourth Avenue. It's recycled paper with a cardboard cover and a drawing of Alice shaking hands with the Mock Turtle.
 
 I sit in the park and write. I think of the other day when I worked that political job, riding in the van to the suburbs.
@@ -3292,6 +3307,7 @@ I stand up.
 "I'll think about it, Andrew. I'll think about it."
 
 ## 16
+
 I'm looking for the funky jester. It's this wine I like. I call it the funky jester 'cause it has a picture of a jester on the front. It's a very cool label. It has the name of the wine, which is Domaine des Blagueurs—it's a syrah. And then there's this line drawing image of a jester with two heads. He has one on the top, and one on the bottom.
 
 I look through the shelves. I know they have it. I ordered a case when I lived here before and they've been stocking it ever since. This is the wine I used to get for the weekends—in fact it's the only wine I ever drank in Tucson, really. When I lived in a tent in my friend's back yard I used to have bottles and bottles of it set beside my sleeping bag.
@@ -3429,6 +3445,7 @@ I close my eyes and think of many things. I think of how everything is made bett
 I lie there for a long time, longer than my break, and I think about asking Ophelia to give me a shot on the sly. If I did that she might tell Bahir, though, and I might lose my job. I imagine Ophelia and I drinking together on the customer side of the bar. I get sleepy. I'm in that pass-out phase of being drunk and if I'm not careful I'll konk out right here on the floor of the employee closet. Let yourself sleep, you need it. This floor is way more comfortable than sleeping on rocks in the wash. In my fantasy, Ophelia orders us more drinks—this round's on her. And I'm drifting, and drifting, and I make myself sit up. Blink my eyes. I can't fall asleep. I'm not a loser. They're paying me to do a job and I'm going to do it. The real Ophelia watches as I get up, put my bag against the wall, and go back to the kitchen.
 
 ## 17
+
 The walk to the wash is getting too long, and I'm afraid of snakes. Sleeping there every night, I snuggle deep into my bag and use my hood to cover my face, but what's to prevent some cold-blooded snake from slithering in with me to keep itself warm? As soon as I roll over, the snake will bite me, and that will be the end of me. Died in the wash, of snakebite, 2006.
 
 So I look for a new place to sleep, closer in. I wait till dark then walk around the university. Not right on campus but in the streets around. I find a parking lot I think is perfect.
@@ -3550,6 +3567,7 @@ We say goodbye. She texts me a few minutes later. Says one of her friends knows 
 I text her back, "yes."
 
 ## 18
+
 I debate calling the guys. They're Ashley's friend Tim's friends. Ashley gives me their number. I'm supposed to call Pete. I'm sitting in front of Time Market when I finally do call.
 
 "Hello?"
@@ -3755,6 +3773,7 @@ I roll over on my side, so my back is facing the room, and I dig in, mentally. N
 The next morning I leave while it's still dark. I change my socks, put on my Converse, and rip a page out of my notebook. I write a note to the housemates thanking them for their hospitality, and I leave, and that's the last I ever know of them.
 
 ## 19
+
 Paula gave me the key to the Casbah so I could clean the oven. It hasn't been cleaned in ages, so for some extra money she said I could clean it when they were closed.
 
 The streets are empty. Every business is closed. I walk down the middle of the street—no traffic—and I think of all the people in their homes, enjoying the holiday. People will be preparing food and getting drunk and hanging with their families. I will be cleaning the Casbah oven, by myself, on Thanksgiving.
@@ -3854,6 +3873,7 @@ I decide not to think about where I'm going to sleep tonight—to save it till a
 Paula will pay me tomorrow, I tell myself. In truth, she never brings it up (even though she compliments the oven) and I have to mention it to her. We have a long talk about how great the oven looks and how I did a good job and how I should have known to use gloves with those chemicals and it's all so distracting that she barely remembers to pay me. When she does, it's half of what we agreed on.
 
 ## 20
+
 I wake up in the dirt by the train tracks. I've taken to sleeping up here because even though visually it's out in the open, it's fenced in. The movement of the trains makes me feel safe, somehow.
 
 I wake at five a.m. It's already light and I actually slept. Dirt is better than rocks or asphalt, or the concrete of the church. Still hard, but deal-with-able.
@@ -4069,6 +4089,7 @@ When he's done talking I say, "Well, Dad, that sounds amazing. You've got some g
 I always convince myself that there's this chasm forming between me and Dad, but the truth is that chasm has been there all along.
 
 ## 21
+
 I go out for drinks with Andrew at Che's. We get to talking at work and find out we both like to write. He has a comic book he's working on. He thinks I might be able to help him write it.
 
 He orders a beer. I order a straight gin. We sit in the corner by the arcade machines.
@@ -4350,6 +4371,7 @@ Alexis grows on me as our conversation grows, but creeping in my mind is the tho
 All these thoughts are running through my head as I watch Alexis' beautiful face. It makes me want to get a software job and be done with all this. You miss out on so much being homeless. But maybe most of all, you miss out on love.
 
 ## 22
+
 I'm hanging out in front of this pizza shop and I'm working on Andrew's comic and journaling about how fascinating Alexis is after just a few conversations and I'm making lists of things I want to accomplish and my mind is racing I keep having these ideas!
 
 There are so many things I want to do, work at NASA is one of them. I've always wanted to work at NASA, mission control—maybe I could be a programmer for the space shuttle! Alexis could come to Houston and we would make babies and work on the shuttle and be fine. Or maybe she would want to live in the desert. I could make money on a stock trading algorithm that I would pull from the depths of my mind, and it would be the best stock trading algorithm ever and we would make billions of dollars. Not millions. Billions. Maybe even a trillion. I would see things in the market that nobody's ever seen, find nuances in the patterns, crack it wide open. I have some ideas from a few years back. Maybe I can repurpose those, program it all at the U of A on borrowed computers. Wouldn't that be something? If I programmed my trading algorithm on desktop computers at the U of A, using all free computer time, and I could run the whole thing out of my shell account. It would trade from there! That's it. That's how I really need to make money. Stock and options trading. A single algorithm. Something genius. Something only I could have come up with.
@@ -4533,6 +4555,7 @@ I wander the neighborhood for hours, looking for somewhere to lie down. The only
 Every step I take, I'm on guard for the meth motherfucker. I think that around every corner, there he'll be. Nothing seems safe to me tonight. All my usual spots would require me to cross Fourth Avenue, and I just won't allow myself to do it. I end up kneeling against a fence; it ensures that no one's coming up behind me. I hold my bag between my legs and rest my arms on it. I hold my head upright, checking to the left and checking to the right. I don't sleep this night.
 
 ## 23
+
 As soon as I get paid at the Casbah, I rent a room at the hostel for a full week. The hostel is called the Road Runner, and it's a few blocks from downtown. It's made from an old, big house and there are three dorm rooms, two for guys and one for girls. When I walk in there are people lounged on the couch watching Blue Velvet on a large-screen TV. A woman stands up.
 
 "You checking in?"
@@ -4740,6 +4763,7 @@ It is a long night. Many wakeups of the door opening and letting light in, peopl
 In the morning I'm sure when I look behind the stereo the cubby will be empty, no phone, some nameless girl having stolen it. I have to wait till the living room is empty to check. But when I do slide the stereo out from its spot, my phone is there, just like she said it would be.
 
 ## 24
+
 I'm better now at looking for secret places. I can hide in the open, sleep right in front of people and they'll never see me. I rarely get my sleeping bag out anymore, I just sleep in my clothes, in a cold kind of half sleep, and it's enough to keep me going in the morning.
 
 I know just when to start looking for places, just when it's dark enough that no one will notice me. I sleep right next to work, the Casbah or the Grill, so I spend less time walking with my heavy bag. The alley behind the grill is perfect, even though I would have never slept there when I started out. While I'm sleeping, people are parking their cars and going to work, and I don't even care if they notice me. But they don't notice me—that's the thing. They don't see me as some guy sleeping leaned up against the side of a building. The don't see me at all! They're busy doing their thing. Business people you don't have to worry about.
@@ -4827,6 +4851,7 @@ I have many nights in the back of the Casbah, letting myself in with the combina
 As the days go on it gets colder, and some nights I find that my sleeping bag doesn't cut it. I search the back of the Casbah hoping to find a blanket. What I find is a pile of old rugs. Imported from Afghanistan, about six foot square, Paula has this stack of twelve decorative rugs. I ditch my sleeping bag and burrow in-between them, with half of them under me and half on top. It's dusty to the point of almost not being able to breathe, but it's warm, and for a while I think I've found paradise at the Casbah.
 
 ## 25
+
 Days off work are the worst. No employee food shelf, no shift meals. Work gives me something to do, somewhere to be. I'm happy when it's over but it also means I have to find somewhere to go, somewhere to wander or somewhere to hide before everyone goes home and I can settle in at the Casbah for the night.
 
 Paula and Bahir change my schedules from time to time and this time it means I have three days off in a row. Three long days of sitting at Time Market using their internet and buying nothing, sitting on benches at the university, and sitting at a computer in the university library programming my cellular automata.
@@ -4900,6 +4925,7 @@ I look at him.
 So I take off my apron and Bahir and the other line cook watch while I leave the kitchen. I go to the employee closet and take my tortellini pasta off the top shelf. I sit leaned up next to my bag and I look at the food. It's glorious—even though it's cold. I pick up one of the rings of tortellini with my fingers and eat it. Then I pick up another, and another, licking my fingers after each one. As I'm slurping and chewing and licking I look up and there's Ophelia, looking down on me, watching me eat. I smile at her and she just smiles back. I'm too hungry for any more politeness, so I bow my head and go back to my food.
 
 ## 26
+
 I notice it while I'm sleeping at the Casbah. It starts with a general weakness, then a headache, then a horrible cough. My muscles ache, my joints creak when I move. At first I think I have the flu, then I notice this terrible taste. When I eat anything, it tastes like shit. There's this iodine taste to wine—so bad I can hardly drink it. Food tastes bland, and like it's rotting. I think there's something seriously wrong with me.
 
 It affects my work. I'm sluggish, everything hurts, I can hardly get through a shift. Dishes pile up at the Grill. I'm taking more and more trips to the employee closet. Ophelia finds me napping there.
@@ -5237,6 +5263,7 @@ Ashley is my longest-time friend. I've known her since Ohio University days. She
 We get reacquainted, this old friend and I, as she takes us out of the city and past the foothills and into the desert night. The lights fade outside my window and the restaurants and homes and streetlamps go away and it's just the two of us speeding along, isolated, next to miles and miles of sand.
 
 ## 27
+
 For a week I lie in bed at Ashley's place. Bed is my sleeping bag on the floor of Ashley's bedroom. I sleep twenty hours a day. The rest of the time I'm coughing.
 
 I want to go to the doctor but can't without health insurance. I try eating Rice Chex but the milk tastes rotten. I eat it anyway. The sickness seems like it's going to last forever. When I come out of my daze Ashley introduces me to her friend and apartment mate, Faith.
@@ -5404,6 +5431,7 @@ Ash and Faith and I imagine what it would be like if all three of us lived in LA
 In the evenings I do phone interviews, pacing around the living room acting like I know what I'm talking about as far as programming is concerned. Actually I do, and it's nice to be talking about it again, running through hypothetical scenarios with possible future bosses, being quizzed by fellow programmers on my technical knowledge—I see the possibilities again. Programming is something I love to do. It's the other stuff that goes with it that I hate: the meetings, the bullshit, the dealing with assholes. But at the moment I'm just excited to be out of the hole I was in in Tucson, and I have hopes that I can once again live a regular life.
 
 ## 28
+
 I get an in-person interview with a company in LA called Optimistic Solutions. I talk with the boss on the phone, then the boss's partner, and they both like me. Faith and I go shopping and pick out some shirts and a pair of pants. For shoes I wear my red Converse. Faith wants me to get a tie but I insist it's not that kind of company.
 
 Ashley takes me to the Greyhound station in Phoenix in the middle of the night. My bus leaves at two a.m. She drops me out front and wishes me luck. Then it's horrible, horrible waiting. Waiting for the bus to leave, standing in a jagged line inside the Greyhound station so I'll get a seat, then waiting on the bus for it to take its circuitous route to Hollywood, via every small town in Arizona and California the bus driver can think of.
@@ -5633,6 +5661,7 @@ I guess the answer is I just fucking love drugs. I'm a degenerate. I don't care 
 The bus ride from LA to Phoenix is a discipline in not letting myself get depressed. I feel extremely low. I use every technique I can think of to talk myself into believing that things are ok—or that they're going to be ok. I review the job interview. I convince myself they're going to hire me. I tell myself that in a few hours I'll be normal again, and able to sleep, that tomorrow morning I'll wake up feeling great. But you can't talk your way out of that kind of low. It's in your body, and in your brain, and it only goes away when the chemicals run their course.
 
 ## 29
+
 I don't hear back from Optimistic Solutions. Two weeks pass, two weeks of hoping I get hired by someone, John from Optimistic Solutions, Safeway, anyone. I'm beginning to hate Phoenix. I wonder why I ever came here.
 
 I look for other jobs and I even do some interviews, but none of them have that click that I felt with John. For me, it becomes that job or no job. I decide that if Optimistic Solutions doesn't hire me, I'm not going to do tech work anymore. This is my last shot at the industry. The possibility there seemed so good that if I don't get that job, my heart's not going to be in a second-choice job. After two weeks I decide to email them.
@@ -6022,6 +6051,7 @@ So Mick and I go to California Pizza Kitchen and we both get the barbecue chicke
 It's probably dangerous for two drug addicts to be friends with each other, but it doesn't feel like a choice to me. Mick is my friend. I like him, and that's that.
 
 ## 30
+
 My first day at work I arrive early (of course). I march up to the third floor to suite 304 and turn the door handle. It's locked. I got here too early.
 
 I go downstairs to the sandwich shop on the first floor. The place is filled with snack food, model trucks, sports jerseys, drinks, and some basic groceries. There's a TV on which is playing Fox News, but I decide to shop there anyway. I get an English muffin with egg and cheese and jalapeños. I take it to the balcony on the second floor and eat looking out over the parking lot. The lake is on the other side but so is my boss's office. I don't want to look too eager.
