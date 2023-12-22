@@ -6022,7 +6022,7 @@ So Mick and I go to California Pizza Kitchen and we both get the barbecue chicke
 It's probably dangerous for two drug addicts to be friends with each other, but it doesn't feel like a choice to me. Mick is my friend. I like him, and that's that.
 
 ## 30
-My first day at work I arrive early (or course). I march up to the third floor to suite 304 and turn the door handle. It's locked. I got here too early.
+My first day at work I arrive early (of course). I march up to the third floor to suite 304 and turn the door handle. It's locked. I got here too early.
 
 I go downstairs to the sandwich shop on the first floor. The place is filled with snack food, model trucks, sports jerseys, drinks, and some basic groceries. There's a TV on which is playing Fox News, but I decide to shop there anyway. I get an English muffin with egg and cheese and jalapeños. I take it to the balcony on the second floor and eat looking out over the parking lot. The lake is on the other side but so is my boss's office. I don't want to look too eager.
 
