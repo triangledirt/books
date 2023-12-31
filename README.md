@@ -45,7 +45,7 @@ yes =)
 
 ### inactive
 
-- [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (juvenilia / outlines)
+- [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (notebooks + journals)
 - [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
 - [smugmug](https://dirt.smugmug.com) (photos / ai)
