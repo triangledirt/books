@@ -38,8 +38,9 @@ yes =)
 
 ### active
 
-- [dirtlove.lol](https://www.dirtlove.lol) (in love with everything)
+- [dirt.omg.lol](https://dirt.omg.lol) (web home)
 - [dirtbooks.cc](http://dirtbooks.cc) (html books)
+- [dirtlove.lol](https://www.dirtlove.lol) (in love with everything)
 - [@dirt@particle.lol](https://particle.lol/@dirt) (daily photography)
 - [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
 
