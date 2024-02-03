@@ -38,14 +38,13 @@ yes =)
 
 ### active
 
-- [dirt.omg.lol](https://dirt.omg.lol) (web home)
-- [dirtbooks.cc](http://dirtbooks.cc) (html books)
-- [dirtlove.lol](https://www.dirtlove.lol) (in love with everything)
+- [dust.lol](https://dust.lol) (web home)
 - [@dirt@particle.lol](https://particle.lol/@dirt) (daily photography)
-- [flickr](https://www.flickr.com/photos/dirtlove/) (daily photography)
 
 ### inactive
 
+- [flickr](https://www.flickr.com/photos/dirtlove/) (photography archive)
+- [dirtlove.lol](https://www.dirtlove.lol) (in love with everything)
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (notebooks + journals)
 - [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
