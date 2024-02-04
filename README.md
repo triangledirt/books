@@ -1,6 +1,6 @@
 # books
 
-novels and memoirs of a darkly comic america
+novels + memoirs of a darkly comic america
 
 ## which book should i read first ??
 
@@ -48,13 +48,13 @@ yes =)
 - [archive](https://drive.filen.io/f/70e15dcc-0d46-4a65-8f06-4577868afa8a#VgqlTlwP6Nbf0pKUxcqacqjBkyp0W0Cw) (notebooks + journals)
 - [@quiet@beige.party](https://beige.party/@quiet) (quiet snapshots)
 - [patreon](https://www.patreon.com/dirtlove) (blog)
-- [smugmug](https://dirt.smugmug.com) (photos / ai)
+- [smugmug](https://dirt.smugmug.com) (photos + ai)
 - [simplenote](http://simp.ly/publish/gNFgMD) (articles)
 - [listed.to/@dirt](https://listed.to/@dirt) (blog)
 - [listed.to/@triangledirt](https://listed.to/@triangledirt) (blog)
-- [medium](https://medium.com/@deadnovelist) (bipolar / philosophy)
+- [medium](https://medium.com/@deadnovelist) (bipolar + philosophy)
 - [vimeo](https://vimeo.com/deadnovelist) (philosophy)
 - [youtube—clownfxsh](https://m.youtube.com/user/clownfxsh/videos) (bipolar)
 - [dot oh specification](https://docs.google.com/document/d/18vFDRfgUui8Ye0jJJd3lm088-3u8hnQbBrwKEp6vatM/mobilebasic?authkey=CNub6MEH&hl=en) (language system)
-- [youtube—matthewvantemple](https://m.youtube.com/user/matthewvantemple/videos) (cellular automata / film school / trip across country)
+- [youtube—matthewvantemple](https://m.youtube.com/user/matthewvantemple/videos) (cellular automata + film school + trip across country)
 - [counterpunch](https://www.counterpunch.org/2001/10/09/marginalization-and-terror/) (9/11 article)
