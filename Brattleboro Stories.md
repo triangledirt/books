@@ -30,7 +30,7 @@ I had never heard of Brattleboro, Vermont, until I was living with my mom in But
 
 In 2011, I move to Brattleboro, Vermont, population 11,765 (plus one). I live there a year. This is what happens.
 
-## 2
+### 2
 
 The first thing I saw was a Craigslist ad for a house in Vermont.
 
@@ -16076,6 +16076,8 @@ And that she's reading this right now.
 And that she has a smile on her face.
 
 I wish luck to the recent graduate in the Amtrak waiting room, then board the train. I take a window seat. Dagny Taggart sits next to me. Yeah, when I left Brattleboro I took Miss Taggart with me. I even bought her a ticket. Sitting next to me in the two-seater she wears her ripped and tattered jacket, buttoned up to look as smart as possible. Like me, her hopes and ethics and romances and tendencies are real and realistic, but she lives in a world of fiction. Our train could crash at any time—all those moving parts—rails and gears and the engine all produced by indigent hands. Even Dagny Taggart couldn't have prevented it. And we end here, on the train with unbelievable light coming through the bare trees, blinding me, speeding on the rails in a contraption that at any moment, through some small mistake, could derail and kill us all. But we ride anyway, as far and as fast as we can.
+
+## part 333
 
 ### 116
 Well, as you've seen, the *Brattleboro Stories* didn't start in Brattleboro—and as you're about to see, they didn't end there, either.
