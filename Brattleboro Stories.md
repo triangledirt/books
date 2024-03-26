@@ -7030,6 +7030,8 @@ One day, hiking to the top of Wantastiquet and looking over the view, looking at
 
 And it was like a premonition. Before I was ever admitted to the Refuge, I used to ride my bike around the grounds, just watching kids play and seeing people swim in the pool. The only reason I even knew the Refuge existed was that I'd applied for a security guard job there when I first arrived in Brattleboro. Now it was late summer turning into autumn and I was drawn to that place like a magnet—on the most subconscious level, I knew that was where I was headed.
 
+## 222
+
 ### 50
 Let me tell you something. Let me tell you about culture.
 
