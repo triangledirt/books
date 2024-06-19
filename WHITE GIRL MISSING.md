@@ -265,7 +265,7 @@ I mean a cunt who dies..at least you can trust the cunt not to show up at your d
 
 *Fuck.*
 
-I mean a cunt who goes missing..she could be living with her grandmother in Arizona having the time of her life and you're writing this dark-ass true crime story and Investigation Discovery is getting all these people involved in your life, worried that you're dead, when really you're working as a waitress at some diner, taking care of your kid, just needing a break from your psycho-ass family and maybe your abusive father or boyfriend or just the pressure of being the star student of every school you ever attended.
+I mean a cunt who goes missing..she could be living with her grandmother in Arizona having the time of her life while I'm writing this dark-ass true crime story and Investigation Discovery is getting all these people involved in her life, worried that she's dead, when really she's working as a waitress at some diner, taking care of her kid, just needing a break from her psycho-ass family and maybe her abusive father or boyfriend or just the pressure of being the star student of every school she ever attended.
 
 The valedictorian of my high school disappeared like that. He could have gone to Yale. You know what he did instead? He moved to a small town and fixed cars. Yeah. He worked in a motherfucking *garage*, fixing vintage cars, probably doing calculus in his head the whole time, just for fucking fun.
 
