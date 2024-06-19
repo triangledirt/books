@@ -136,7 +136,7 @@ Or maybe Laura Lindsay staged one of the most brilliant disappearances in the hi
 
 The question is: *just how smart is Laura Lindsay?*
 
-Is she smart enough to intentionally wreck her car—but not enough to kill herself—to put bottles of alcohol in her passenger seat to lead us all *to believe* she was drunk, to have someone waiting for her in an SUV behind the Walmart, walk casually through the back warehouse and get in the friendly vehicle, and disappear to Canada with her new boyfriend or Lisa Morabito, and then live so quietly that she never raises any kind of flag on any kind of radar? Change her name? Work invisibly in some coffeehouse in a tiny town and maintain the discipline of never contacting her family again?
+Is she smart enough to intentionally wreck her car—but wreck it gently enough to survive—to put bottles of alcohol in her passenger seat to lead us all *to believe* she was drunk, to have someone waiting for her in an SUV behind the Walmart, walk casually through the back warehouse and get in the friendly vehicle, and disappear to Canada with her new boyfriend or Lisa Morabito, and then live so quietly that she never raises any kind of flag on any kind of radar? Change her name? Work invisibly in some coffeehouse in a tiny town and maintain the discipline of never contacting her family again?
 
 Did she want to get away that fucking bad?
 
