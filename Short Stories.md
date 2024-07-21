@@ -1556,7 +1556,7 @@ That's how I got through the week. Then the weekend came. That's how I got throu
 
 I was friends with hosts. I was friends with hostesses. They showed me their pictures. They told me their stories. They sat with me at my tables and drank with me.
 
-But at the end of the night, went all the customers had gone home but me, my bartender friends didn't come with me. I left alone, to find the subway or more likely a cab because riding the subway drunk didn't seem safe. And then I was on the yellow line back to Queens, and my sister's apartment, with my sister and her friend hopefully both asleep.
+But at the end of the night, when all the customers had gone home but me, my bartender friends didn't come with me. I left alone, to find the subway or more likely a cab because riding the subway drunk didn't seem safe. And then I was on the yellow line back to Queens, and my sister's apartment, with my sister and her friend hopefully both asleep.
 
 - - - -
 
