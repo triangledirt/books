@@ -24,7 +24,7 @@ They had difficulty with simple math and logic problems as well. Like Morgan's f
 
 Morgan is smarter. But Morgan hides it. There's that saying someone said about *wherever a genius appears he will be assaulted by a confederacy of dunces* or whatever? I don't know the exact quote but Morgan hides to avoid the assault of dunces—I watch her do it. I recognize the maneuver 'cause it's one I use myself.
 
-Morgan has an older sister Laura. Laura is a dud. Everyone in my family is a dud except me, Laura, my sister Eliza, and my mom and that's it. The remaining crowd is wrapped up in fear, conformity..knee deep in quicksand. They're impossible to talk to. Only a handful of us, by circumstance, have peeled away from the pack and we are villainized by the family for saying things that make sense. My therapist told me once:
+Morgan has an older sister Laura. Laura is a dud. Everyone in my family is a dud except me, Morgan, my sister Eliza, and my mom and that's it. The remaining crowd is wrapped up in fear, conformity..knee deep in quicksand. They're impossible to talk to. Only a handful of us, by circumstance, have peeled away from the pack and we are villainized by the family for saying things that make sense. My therapist told me once:
 
 "Oh, did you think coming here was going to make your life easier?" (No, it's going to make your life harder. The more therapy you attend, the fewer people you'll be able to relate intimately toward, not more.)
 
