@@ -114,7 +114,7 @@ I’m on him. Martin stands back. The Captain stands back. They know this is my 
 
 “I didn’t like it, no. And I thought it showed a lack of caution.”
 
-“Why is it you Black people when you feel like being a punk, you’re like, *what the fuck* and *nig this and *nig that* and then when you feel like it you’ll just hit us with *I didn’t, no. And it showed a lack of caution.*”
+“Why is it you Black people when you feel like being a punk, you’re like, *what the fuck* and *nig this* and *nig that* and then when you feel like it you’ll just hit us with *I didn’t, no. And it showed a lack of caution.*”
 
 “Maybe it’s ‘cause that’s not an accent. It ain’t strictly what you’re born with.”
 
