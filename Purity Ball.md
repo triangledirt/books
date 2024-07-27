@@ -434,7 +434,7 @@ Did I trip upwards?  Did I trip sideways?  Was there the space for an oath betwe
 
 Swinging my arms.  Jolly!  All the way up my master of the house!  Bastard of the house!  A louse!  And pricking on my daughter’s door.  My Monday!
 
-Tipping open her door and Monday lies face down on her daybed.  Her legs are folded up underneath her, knees to her face, with her toes wriggling a certain cadence.  Fingers underneath her hose.  Playing her pussy like a piano.  Like a flute!  I push the door all the way and slink into my daughter’s room.  Sit myself at her desk chair and watch the all-to-joyful need of that self-made creature to bring herself off.  To masturbate her hungry pussy and give the girl herself the sensation of coming.
+Tipping open her door and Monday lies face down on her daybed.  Her legs are folded up underneath her, knees to her face, with her toes wriggling a certain cadence.  Fingers underneath her hose.  Playing her pussy like a piano.  Like a flute!  I push the door all the way and slink into my daughter’s room.  Sit myself at her desk chair and watch the all-too-joyful need of that self-made creature to bring herself off.  To masturbate her hungry pussy and give the girl herself the sensation of coming.
 
 Uh!  Uh!  Ah! she speaks.
 
