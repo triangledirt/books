@@ -1,6 +1,6 @@
 # the sandwich shop
 
-[▵dirt](https://triangledirt.com) / [@ghettorich](https://stranger.social/@ghettorich)
+by dirt + flux
 
 ## 1
 
