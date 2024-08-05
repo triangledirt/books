@@ -1,5 +1,5 @@
 # Clownfysh.com Selected Posts
-## 2010–2016 in chronological order
+## 2010–2016 In Chronological Order
 
 ### People who drink too much are people who essentially aren’t satisfied by drinking. Otherwise, if drinking satisfied them, they would stop drinking.
 
